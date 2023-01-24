@@ -1,9 +1,5 @@
 # ARSIP SARJANA BUDI SANTOSA
 
-```{contents}
-
-```
-
 Oleh: Prof. Dr. dr. R. SOEMANTRI HARDJOPRAKOSO (Mayor Jenderal TNI)
 
 Untuk kepentingan Prabawa dan Pangaribawa beserta teman-temannya, Bapak Pangrasa dari Bawa Raos ing Salebeting Raos memanggil paniteranya pribadi: Sarjana. Waktu Sarjana masih ngenger (menumpang) di pondok pamannya di Timuran (Solo) diberi tambahan nama sehingga menjadi Sarjana Budi Santosa.
@@ -720,4 +716,6 @@ Induk Kesadaran ini tidak terbatas lagi oleh sesuatu badan jasmani, melainkan me
 
 ## 156. Masuk ke dalam Alam Sejati
 
+```{contents}
 
+```
