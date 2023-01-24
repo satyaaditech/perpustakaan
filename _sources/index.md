@@ -2,7 +2,7 @@
 
 Salam Sejahtera dan Bahagia,
 
-Perpus ini digunakan untuk kepentingan **kalangan sendiri\*** ya, untuk mempermudah para anggota didalam mengakses materi-materi pelajaran Ajaran Sang Guru Sejati, beserta materi lain sebagai mendukung.
+Perpus ini digunakan untuk kepentingan \*\*kalangan sendiri\*\* ya, untuk mempermudah para anggota didalam mengakses materi-materi pelajaran Ajaran Sang Guru Sejati, beserta materi lain sebagai mendukung.
 
 Daftar Buku ada menu (garis mendatar 3, sebelah kiri atas) dan Daftar Isi Tiap Buku bisa diakses dari menu kana (garis mendatar 3, kanan atas), disebelah kanan atas ya. Semoga Bermanfaat
 
