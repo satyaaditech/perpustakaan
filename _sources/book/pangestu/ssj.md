@@ -18,3 +18,6 @@ Kang diarani eling, iku tegese: bekti marang Pangeran Kang Mahatunggal (Gusti Al
 2. Suksma Sejati (Panutan Sejati = Panuntun Sejati = Guru Sejati), Utusaning Pangeran.
 3. Roh Suci (Manungsa Sejati), iya jiwane manungsa kang sejati.
 ```
+  
+
+
