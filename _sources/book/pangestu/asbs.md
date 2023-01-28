@@ -6,9 +6,6 @@ Untuk kepentingan Prabawa dan Pangaribawa beserta teman-temannya, Bapak Pangrasa
 
 Diperintahkan kepada panitera muda ini untuk menulis diktat dari Bapak Pangrasa. Anehnya diktat tidak diberikan dengan lisan, melainkan ia disuruh memandang cahaya yang memancar dari batin Bapak Pangrasa. Sarjana Budi Santosa menulis sambil memandang cahaya itu. Adapun yang dicatat sebagai berikut :
 
-
-
-
 ## 1. Suksma Kawekas
 
 Sebelum ada apa-apa yang berbentuk dan berwujud, **Suksma Kawekas** telah bertakhta pribadi. [**Suksma Kawekas**](penjelasan-tripurusa) dapat dipandang sebagai asal mula Kesadaran Hidup yang tidak terbatas, tenang, tenteram, dan tidak bergerak. Di dalamnya terkandung kemampuan yang tidak terbatas, sesuatu omnipotensi, tetapi **omnipotensi** ini belum bergerak.
@@ -746,123 +743,185 @@ Maka dari itu Sarjana Budi Santosa sebagai penulis pribadi dari Bapak Pangrasa, 
 ## 87. Memulai hidup baru ( dilahirkan kembali)
 
 ## 88. Kesurupan oleh sesuatu dewa
-	
+
 Bagaimana keadaan manusia yang masih hidup di dunia dengan badan jasmani kasar dan **kesurupan oleh sesuatu dewa** ? Pertama harus disadari, bahwa manusia yang masih hidup alat-alatnya yang kasar dan halus masih lengkap semuanya. Yang dipengaruhi oleh para dewa ialah angan-angan manusia. Angan-angan ini dapat diumpamakan jembatan yang dipakai oleh para dewa dalam mempergunakan kekuasaannya terhadap manusia.
 
 Angan-angan yang bagaimana yang dapat dipengaruhi oleh para dewa? Yang dapat dipengaruhi oleh para dewa ialah angan-angan yang tidak ditujukan kepada kesadaran terhadap Tripurusa. Manusia yang senantiasa menyadari tentang Tripurusa di dalam diri sendiri dan selalu mengingat-ingat akan kewajibannya terhadap Suksma Sejati, akan terhindar dari godaan para dewa. Manusia yang bertindak demikian mendapat Lindungan dari Suksma Sejati terhadap pengaruh siapapun.
 
 Tetapi sebaliknya manusia yang menunjukan angan-angannya kepada kebaktian terhadap para dewa, benda-benda, jimat-jimat dan lain sebagainya yang dilarang oleh Suksma Sejati, nyata-nyata melepaskan diri dari Lindungan Suksma Sejati dan akan menjadi bulan-bulanan para dewa.
 
-Maka jangan mencacat dan menjauhkan diri dari Utusan Suksma Kawekas dan para wakil dari Suksma Sejati. Mula-mula orang demikian tidak percaya kepada para Utusan Suksma Kawekas dan mencari-cari kesalahannya. Saat-saat itulah yang diincer oleh para dewa untuk mempergunakan  kekuasaaannya Angan-angan manusia yang dipengaruhinya lalu dibelokkan pikiran dan nalarnya. Dengan sendirinya ia akan tidak dapat membeda-bedakan apa yang benar dan apa yang dusta. Jalan pikirannya menjadi simpang siur.
+Maka jangan mencacat dan menjauhkan diri dari Utusan Suksma Kawekas dan para wakil dari Suksma Sejati. Mula-mula orang demikian tidak percaya kepada para Utusan Suksma Kawekas dan mencari-cari kesalahannya. Saat-saat itulah yang diincer oleh para dewa untuk mempergunakan kekuasaaannya Angan-angan manusia yang dipengaruhinya lalu dibelokkan pikiran dan nalarnya. Dengan sendirinya ia akan tidak dapat membeda-bedakan apa yang benar dan apa yang dusta. Jalan pikirannya menjadi simpang siur.
 
 Mula-mula si dewa menegakkan pengaruhnya dengan bisikan-bisikan yang benar. Lama-kelamaan bila pengaruh sudah nyata, bisikan-bisikan yang benar dicampuri dengan bisikan-bisikan yang bertentangan dengan yang semula. Makin lama tuntunan si dewa tambah tidak keruan simpang-siurnya, dan si mangsa (korban) menjadi bingung oleh karenanya. Bila manusia sudah bingung terombang-ambing oleh perintah yang acap kali berlawanan, pikiran menjadi kacau, dan tidak jarang si korban jatuh sakit ingatan. Inilah yang dituju oleh para dewa. Sebab manusia yang bingung atau sama sekali sakit jiwanya, akan tidak mungkin lagi berbakti dan manembah kepada Suksma Sejati dan hatinya terus bertambah gelap. Hanya Sabda Penebus Dosa dari Sang Maha Murah dan Adil akan dapat menolongnya dari kesengsaraan.
 
 ## 89. Melamun
 
-Ada lagi kesempatan bagi para dewa untuk mempengaruhi manusia, yakni bila manusia suka **melamun**. Dengan melamun seolah-olah para dewa dipersilakan menempati kursi malas yang nikmat. Siapa yang tidak mau mempergunakannya? Manusia saja mau, apa lagi dewa. 
+Ada lagi kesempatan bagi para dewa untuk mempengaruhi manusia, yakni bila manusia suka **melamun**. Dengan melamun seolah-olah para dewa dipersilakan menempati kursi malas yang nikmat. Siapa yang tidak mau mempergunakannya? Manusia saja mau, apa lagi dewa.
 
-Para dewa juga dapat melumpuhkan angan-angan manusia yang telah kena pengaruhnya. Setelah angan-angan lumpuh, si dewa yang bersangkutan menggerakkan alat-alat pelaksana dari si korban. Manusia yang menjadi korban lalu berbicara atau bergerak seperti yang dikehendaki oleh dewa itu. Bila angan-angan lumpuh, manusia yang menjadi korban tidak dapat mengingat-ingat apa yang dikerjakan oleh si dewa dengan badan jasmaninya. Apabila ini sering terjadi, pikiran menjadi tumpul. Karena itu para siswa dan calon siswa semua hendaknya jangan suka melamun dan membayangkan hal-hal yang tidak pantas diingat-ingat. Dalam bahasa jiwa perbuatan tersebut berarti menyediakan tempat yang nikmat bagi para dewa untuk beroperasi. 
+Para dewa juga dapat melumpuhkan angan-angan manusia yang telah kena pengaruhnya. Setelah angan-angan lumpuh, si dewa yang bersangkutan menggerakkan alat-alat pelaksana dari si korban. Manusia yang menjadi korban lalu berbicara atau bergerak seperti yang dikehendaki oleh dewa itu. Bila angan-angan lumpuh, manusia yang menjadi korban tidak dapat mengingat-ingat apa yang dikerjakan oleh si dewa dengan badan jasmaninya. Apabila ini sering terjadi, pikiran menjadi tumpul. Karena itu para siswa dan calon siswa semua hendaknya jangan suka melamun dan membayangkan hal-hal yang tidak pantas diingat-ingat. Dalam bahasa jiwa perbuatan tersebut berarti menyediakan tempat yang nikmat bagi para dewa untuk beroperasi.
 
 ## 90. Dilahirkan sebagai hewan
 
-Bagaimana halnya dengan manusia yang dilahirkan menjadi hewan setelah semua kesempatan untuk menebus dosanya tidak dipergunakan? 
+Bagaimana halnya dengan manusia yang dilahirkan menjadi hewan setelah semua kesempatan untuk menebus dosanya tidak dipergunakan?
 
-Bagi manusia yang **dilahirkan lagi sebagai hewan** ini merupakan sesuatu kemerosotan derajat yang hebat. 
+Bagi manusia yang **dilahirkan lagi sebagai hewan** ini merupakan sesuatu kemerosotan derajat yang hebat.
 
-Pertama, Roh Suci dari hewan tidak disertai Suksma Sejati. Benar, bahwa Suksma Sejati meliputi segala sesuatu yang bersifat hidup, tetapi di dalam hewan Suksma Sejati tidak diberi tugas oleh Suksma Kawekas untuk menuntun. Ini memang suatu keadilan untuk menghabiskan karma dari yang bersangkutan tanpa ia dapat mengubah nasibnya. 
+Pertama, Roh Suci dari hewan tidak disertai Suksma Sejati. Benar, bahwa Suksma Sejati meliputi segala sesuatu yang bersifat hidup, tetapi di dalam hewan Suksma Sejati tidak diberi tugas oleh Suksma Kawekas untuk menuntun. Ini memang suatu keadilan untuk menghabiskan karma dari yang bersangkutan tanpa ia dapat mengubah nasibnya.
 
-Karena apa nasib hewan tidak dapat diubah oleh hewan itu sendiri? 
+Karena apa nasib hewan tidak dapat diubah oleh hewan itu sendiri?
 
-Pertama, karena Roh Suci di dalam hewan tidak disertai oleh Suksma Sejati. 
+Pertama, karena Roh Suci di dalam hewan tidak disertai oleh Suksma Sejati.
 
-Kedua, karena alat-alat hidup dari hewan tidak lengkap seperti halnya pada manusia. Hewan tidak mempunyai paugeran sebagai janji dan ancer-ancer hidup. Hewan hanya mempunyai cipta sebagai angan-angan. Nalar dan pengerti tidak ada. Unsur yang menyusun badan hewan hanya 3, karena unsur air tidak ada. 
+Kedua, karena alat-alat hidup dari hewan tidak lengkap seperti halnya pada manusia. Hewan tidak mempunyai paugeran sebagai janji dan ancer-ancer hidup. Hewan hanya mempunyai cipta sebagai angan-angan. Nalar dan pengerti tidak ada. Unsur yang menyusun badan hewan hanya 3, karena unsur air tidak ada.
 
-Perasaan tidak ada untuk menimbang dan meraba-raba keadaan. Karena nalar, pengerti, perasaan dan nafsu Sufiah tidak ada, hewan tidak dapat mengerti persoalan yang dihadapinya. Ia tentu tidak dapat bernalar supaya bebas dari persoalan yang meliputinya. Cita-cita tinggi tidak ada. Semua itu berakibat bahwa pada hewan tidak terdapat akal budi. 
+Perasaan tidak ada untuk menimbang dan meraba-raba keadaan. Karena nalar, pengerti, perasaan dan nafsu Sufiah tidak ada, hewan tidak dapat mengerti persoalan yang dihadapinya. Ia tentu tidak dapat bernalar supaya bebas dari persoalan yang meliputinya. Cita-cita tinggi tidak ada. Semua itu berakibat bahwa pada hewan tidak terdapat akal budi.
 
-Yang ada pada hewan ialah insting untuk menyelesaikan tugas seperti makan, cara membikin sarang, melahirkan anak, lari bila ada bahaya, dan lain sebagainya, yang diatur sebagai refleks. 
+Yang ada pada hewan ialah insting untuk menyelesaikan tugas seperti makan, cara membikin sarang, melahirkan anak, lari bila ada bahaya, dan lain sebagainya, yang diatur sebagai refleks.
 
-Sudah ditakdirkan oleh Suksma Kawekas, bahwa Roh Suci dari hewan kembali kepada Asal Mulanya setelah badan jasmani mati. Kembalinya Roh Suci ke Suksma Sejati pada hewan tidak secara sadar seperti halnya pada manusia.   
+Sudah ditakdirkan oleh Suksma Kawekas, bahwa Roh Suci dari hewan kembali kepada Asal Mulanya setelah badan jasmani mati. Kembalinya Roh Suci ke Suksma Sejati pada hewan tidak secara sadar seperti halnya pada manusia.
 
 ## 91. Membebaskan diri dari karma
 
-Manusia dapat menjalankan Hasta Sila untuk **membebaskan diri dari karma**, dan dengan Hasta Sila dapat menyadarkan sepenuhnya jalan kembali ke pangkuan Suksma Sejati. Manusia yang akhimya dilahirkan sebagai hewan sebagai hukuman, pasti merasakan riwayat ini sebagai penderitaan dan yang menyedihkan ialah bahwa ia sendiri tidak dapat berusaha untuk membebaskan diri dari nasibnya. Mau tidak mau hewan itu harus memikul nasibnya sampai titik penghabisan.   
+Manusia dapat menjalankan Hasta Sila untuk **membebaskan diri dari karma**, dan dengan Hasta Sila dapat menyadarkan sepenuhnya jalan kembali ke pangkuan Suksma Sejati. Manusia yang akhimya dilahirkan sebagai hewan sebagai hukuman, pasti merasakan riwayat ini sebagai penderitaan dan yang menyedihkan ialah bahwa ia sendiri tidak dapat berusaha untuk membebaskan diri dari nasibnya. Mau tidak mau hewan itu harus memikul nasibnya sampai titik penghabisan.
 
 ## 92. Masuk ke dalam alam para dewa
 
-Bagaimana keadaan manusia yang **masuk ke dalam alam para dewa?** Manusia yang masuk ke dalam alam dewa adalah manusia yang memuja dewa. Sifat dewa ialah merasa dirinya yang paling kuasa. Tentunya manusia yang mengikuti dewa sifatnya juga mirip dengan watak para dewa. 
+Bagaimana keadaan manusia yang **masuk ke dalam alam para dewa?** Manusia yang masuk ke dalam alam dewa adalah manusia yang memuja dewa. Sifat dewa ialah merasa dirinya yang paling kuasa. Tentunya manusia yang mengikuti dewa sifatnya juga mirip dengan watak para dewa.
 
-Jadi sudah dapat dipastikan, bahwa para manusia yang kesasar ke alam dewa semua bersifat mengaku-aku. Semua watak yang memperkuat Aku dimilikinya, seperti: kumaluhur (merasa dirinya yang paling tinggi), kumawasa (merasa dirinya yang paling berkuasa), kuminter (merasa dirinya yang paling pinter sekali), kumalungkung (merasa dirinya yang paling hebat) dan masih beberapa sifat lagi, yang bagi manusia seharusnya dijauhi, bilamana ia ingin kembali ke Suksma Sejati. 
+Jadi sudah dapat dipastikan, bahwa para manusia yang kesasar ke alam dewa semua bersifat mengaku-aku. Semua watak yang memperkuat Aku dimilikinya, seperti: kumaluhur (merasa dirinya yang paling tinggi), kumawasa (merasa dirinya yang paling berkuasa), kuminter (merasa dirinya yang paling pinter sekali), kumalungkung (merasa dirinya yang paling hebat) dan masih beberapa sifat lagi, yang bagi manusia seharusnya dijauhi, bilamana ia ingin kembali ke Suksma Sejati.
 
-Di belakang para manusia itu tetap berkuasa para dewa yang dipujanya. Dewa-dewa itu yang mengendalikan dan menjajah para manusia yang masuk ke alam mereka. Sekalipun para manusia yang kesasar itu mengatakan, bahwa mereka bahagia, tetapi mereka harus masih tunduk kepada dewa-dewa yang di belakang mereka, dan mereka tidak bebas dalam memilih cara hidup sendiri. Bila mereka ingin ingat kepada Suksma Sejati, mereka segera diganggu dan dibelokkan oleh para dewa itu. Caranya mengganggu dan membelokkan itu benar-benar memakai cara menjajah.   
+Di belakang para manusia itu tetap berkuasa para dewa yang dipujanya. Dewa-dewa itu yang mengendalikan dan menjajah para manusia yang masuk ke alam mereka. Sekalipun para manusia yang kesasar itu mengatakan, bahwa mereka bahagia, tetapi mereka harus masih tunduk kepada dewa-dewa yang di belakang mereka, dan mereka tidak bebas dalam memilih cara hidup sendiri. Bila mereka ingin ingat kepada Suksma Sejati, mereka segera diganggu dan dibelokkan oleh para dewa itu. Caranya mengganggu dan membelokkan itu benar-benar memakai cara menjajah.
 
 ## 93. Jiwanya hancur dimakan api
- 
-Sering kali kita lupa, bahwa di belakang para manusia yang kesasar itu masih terdapat para dewa yang berkuasa. 
 
-Terhadap sesama manusia yang masih berbadan jasmani kasar mereka mengatakan dirinya bahagia, tetapi terhadap dewa yang disembahnya mereka diperlakukan sebagai budak. Budak itu tidak mempunyai hak atas hidupnya sendiri. · 
+Sering kali kita lupa, bahwa di belakang para manusia yang kesasar itu masih terdapat para dewa yang berkuasa.
 
-Karena para dewa itu berunsur api, maka para manusia yang di dalam alam itu ikut pula mengobarkan unsur apinya di dalam badan jasmani halusnya sendiri. Ini menimbulkan suasana panas yang mengganggu ketenteraman dan ketenangan. Mengobarkan unsur api menarik unsur api dari sekelilingnya dan pergumpalan dari banyak unsur api menimbulkan kebakaran yang dahsyat. Akhimya **jiwanya** mati **hancur dimakan api**. Inilah akhir yang tragis dari para manusia yang memungkiri asal-usulnya.   
+Terhadap sesama manusia yang masih berbadan jasmani kasar mereka mengatakan dirinya bahagia, tetapi terhadap dewa yang disembahnya mereka diperlakukan sebagai budak. Budak itu tidak mempunyai hak atas hidupnya sendiri. ·
+
+Karena para dewa itu berunsur api, maka para manusia yang di dalam alam itu ikut pula mengobarkan unsur apinya di dalam badan jasmani halusnya sendiri. Ini menimbulkan suasana panas yang mengganggu ketenteraman dan ketenangan. Mengobarkan unsur api menarik unsur api dari sekelilingnya dan pergumpalan dari banyak unsur api menimbulkan kebakaran yang dahsyat. Akhimya **jiwanya** mati **hancur dimakan api**. Inilah akhir yang tragis dari para manusia yang memungkiri asal-usulnya.
 
 ## 94. Menutup pancaindra
 
-Pancaindra dipergunakan untuk menangkap getaran dari dunia luar. Dengan adanya pancaindra terlaksanalah hubungan antara dunia besar di luar dengan dunia dalam atau dunia kecil, antara makrokosmos dengan mikrokosmos. Pancaindra dengan demikian merupakan pintu gerbang. Bila pintu gerbang terbuka adanya, akan ada hubungan tertentu antara dunia luar dan dunia dalam. Bila pintu gerbang itu ditutup, hubungan tersebut terputus oleh karenanya. Lalu manusia dapat mengatur apaapa yang terjadi di dalam mikrokosmosnya sendiri tanpa melayani dunia luar. 
+Pancaindra dipergunakan untuk menangkap getaran dari dunia luar. Dengan adanya pancaindra terlaksanalah hubungan antara dunia besar di luar dengan dunia dalam atau dunia kecil, antara makrokosmos dengan mikrokosmos. Pancaindra dengan demikian merupakan pintu gerbang. Bila pintu gerbang terbuka adanya, akan ada hubungan tertentu antara dunia luar dan dunia dalam. Bila pintu gerbang itu ditutup, hubungan tersebut terputus oleh karenanya. Lalu manusia dapat mengatur apaapa yang terjadi di dalam mikrokosmosnya sendiri tanpa melayani dunia luar.
 
-Apabila manusia **menutup pancaindranya**, pergolakan di dalam jiwanya tidak lekas berhenti dengan sendirinya. Pergolakan di dalam jiwa dapat diumpamakan roda yang diputarkan oleh getaran-getaran dari luar, yang masuk melalui pancaindra dan juga digerakkan oleh nafsu keinginan yang beraneka ragam, yang ditambah kekuatannya karena disentosakan oleh angan-angan dan perasaan. 
+Apabila manusia **menutup pancaindranya**, pergolakan di dalam jiwanya tidak lekas berhenti dengan sendirinya. Pergolakan di dalam jiwa dapat diumpamakan roda yang diputarkan oleh getaran-getaran dari luar, yang masuk melalui pancaindra dan juga digerakkan oleh nafsu keinginan yang beraneka ragam, yang ditambah kekuatannya karena disentosakan oleh angan-angan dan perasaan.
 
-Selama pintu gerbang pancaindra tertutup, roda tersebut masih berputar terns, karena masih ada keinginan kemauan yang menggerakkan, dan masih ada angan-angan dan perasaan yang mau menyelesaikan bermacam-macam soal. 
- 
-Maka dari itu barangsiapa mau menghentikan berputarnya roda tersebut, setelah menutup pancainderanya masih harus menghentikan semua nafsu keinginannya dan meletakkan segenap persoalan hidupnya. 
+Selama pintu gerbang pancaindra tertutup, roda tersebut masih berputar terns, karena masih ada keinginan kemauan yang menggerakkan, dan masih ada angan-angan dan perasaan yang mau menyelesaikan bermacam-macam soal.
 
-Menutup pancaindera berarti tidak menangkap getaran dari dunia luar lagi atau tidak melayani apa-apa lagi yang ada di dunia besar ini, seperti bayangan-bayangan, cahaya-cahaya, suara-suara, bau-bauan, dan lain sebagainya.   
+Maka dari itu barangsiapa mau menghentikan berputarnya roda tersebut, setelah menutup pancainderanya masih harus menghentikan semua nafsu keinginannya dan meletakkan segenap persoalan hidupnya.
+
+Menutup pancaindera berarti tidak menangkap getaran dari dunia luar lagi atau tidak melayani apa-apa lagi yang ada di dunia besar ini, seperti bayangan-bayangan, cahaya-cahaya, suara-suara, bau-bauan, dan lain sebagainya.
 
 ## 95. Menyediakan kancah
 
-Tujuan tiap siswa ialah bertunggal dengan Suksma Sejati. Ini berarti bahwa tiap siswa harus **menyediakan kancah** yang sesuai dengan keadaan Suksma Sejati. Keadaan Suksma Sejati itu suci, tenang, damai, sayang. Maka siswa harus berusaha supaya dunianya dalam menjadi suci, tenang, damai, dan sayang. 
+Tujuan tiap siswa ialah bertunggal dengan Suksma Sejati. Ini berarti bahwa tiap siswa harus **menyediakan kancah** yang sesuai dengan keadaan Suksma Sejati. Keadaan Suksma Sejati itu suci, tenang, damai, sayang. Maka siswa harus berusaha supaya dunianya dalam menjadi suci, tenang, damai, dan sayang.
 
-- Siapa masih tergoda oleh keadaan dunia besar ini, masih belum suci. 
-- Siapa masih ingin menjalankan suatu prestasi, sekalipun prestasi itu baik, temyata belum tenang. - Siapa masih ingin memberantas apa-apa yang jahat dan buruk, temyata belum damai. 
-- Siapa masih membenci apa-apa yang tidak baik, temyata belum sayang. 
+- Siapa masih tergoda oleh keadaan dunia besar ini, masih belum suci.
+- Siapa masih ingin menjalankan suatu prestasi, sekalipun prestasi itu baik, temyata belum tenang. - Siapa masih ingin memberantas apa-apa yang jahat dan buruk, temyata belum damai.
+- Siapa masih membenci apa-apa yang tidak baik, temyata belum sayang.
 
 Suksma Sejati tidak tergoda oleh apapun. Suksma Sejati tidak ingin mengadakan sesuatu prestasi. Suksma Sejati tidak memberantas apapun, tetapi hanya membawa hayu. Suksma Sejati tidak mengandung benci. Sayang-Nya tidak membedabedakan, tidak diskriminatif. Dewa-dewa pun tidak dibenci oleh Suksma Sejati.
- 
-Suksma Sejati hanya memperingatkan kepada manusia bahwa para dewa akan membawa manusia ke jalan yang sesat, karena bagi manusia masih ada perbedaan antara jalan kanan dan jalan kiri. Bagi Suksma Sejati tidak ada kanan-kiri lagi. Kanankiri telah ada di dalam-Nya. 
 
-Cara untuk membikin jiwa kita sesuai dengan Kehendak Suksma Sejati ialah hidup dengan berpedoman Hasta Sila. Hasta Sila menyediakan kancah di mana Suksma Sejati dapat takhta. Hasta Sila membikin jiwa kita suci, tenang, damai dan sayang.   
+Suksma Sejati hanya memperingatkan kepada manusia bahwa para dewa akan membawa manusia ke jalan yang sesat, karena bagi manusia masih ada perbedaan antara jalan kanan dan jalan kiri. Bagi Suksma Sejati tidak ada kanan-kiri lagi. Kanankiri telah ada di dalam-Nya.
+
+Cara untuk membikin jiwa kita sesuai dengan Kehendak Suksma Sejati ialah hidup dengan berpedoman Hasta Sila. Hasta Sila menyediakan kancah di mana Suksma Sejati dapat takhta. Hasta Sila membikin jiwa kita suci, tenang, damai dan sayang.
 
 ## 96. Pancaindera alat menerjemahkan isi jiwa keluar
 
-Manusia menyampaikan apa-apa kepada dunia luar melalui pancaindera. Pancaindera tidak hanya alat untuk menangkap getaran dari luar ke dalam, melainkan juga alat untuk menterjemahkan isi jiwa kita ke luar. 
+Manusia menyampaikan apa-apa kepada dunia luar melalui pancaindera. Pancaindera tidak hanya alat untuk menangkap getaran dari luar ke dalam, melainkan juga alat untuk menterjemahkan isi jiwa kita ke luar.
 
-Mata tidak hanya indera untuk menangkap getaran cahaya, tetapi juga untuk memberikan isyarat pada dunia luar bagaimana isi jiwa kita. Orang yang marah lain memandangnya dari pada orang yang sayang. Sekalipun bagi lain-lain indera soal ini tidakjelas nampaknya, tetapi keadaannya sama saja. 
+Mata tidak hanya indera untuk menangkap getaran cahaya, tetapi juga untuk memberikan isyarat pada dunia luar bagaimana isi jiwa kita. Orang yang marah lain memandangnya dari pada orang yang sayang. Sekalipun bagi lain-lain indera soal ini tidakjelas nampaknya, tetapi keadaannya sama saja.
 
-Manusia yang telah membiasakan diri dapat menyampaikan apa-apa melalui indra lainnya. Melalui indra percakapan manusia terang dapat menyampaikan pepadang atau kegelapan. Kata-kata menjadi duta dari isi jiwa manusia. 
+Manusia yang telah membiasakan diri dapat menyampaikan apa-apa melalui indra lainnya. Melalui indra percakapan manusia terang dapat menyampaikan pepadang atau kegelapan. Kata-kata menjadi duta dari isi jiwa manusia.
 
 ## 97. Pancaindera alat kontrol bagi diri sendiri
 
-**Pancaindera** merupakan pula alat **untuk mengadakan kontrol bagi diri sendiri.**  Dengan pancaindra kita melihat, apakah kita sudah berjalan baik, apakah pembicaraan lancar, apakah tingkah laku kita pantas dan lain sebagainya. Tanpa pancaindra sukarlah bagi manusia untuk mengadakan koreksi terhadap diri sendiri. Mengenai hal-hal yang halus nyata juga, bahwa pancaindra dapat dipergunakan untuk keperluan yang sama.
+**Pancaindera** merupakan pula alat **untuk mengadakan kontrol bagi diri sendiri.** Dengan pancaindra kita melihat, apakah kita sudah berjalan baik, apakah pembicaraan lancar, apakah tingkah laku kita pantas dan lain sebagainya. Tanpa pancaindra sukarlah bagi manusia untuk mengadakan koreksi terhadap diri sendiri. Mengenai hal-hal yang halus nyata juga, bahwa pancaindra dapat dipergunakan untuk keperluan yang sama.
 
-Kita misalnya dapat mengadakan kontrol dalam keinginan kita dengan meneliti bayangan-bayangan cipta yang menyertai keinginan tersebut. Apa yang dibayangkan oleh angan-angan, itulah menunjukkan nafsu yang mendorong di belakangnya. Pun perasaan dapat diteliti karena bayangan-bayangan dari cipta tersebut, atau langsung dapat ditangkap oleh indra perasaan. 
-
+Kita misalnya dapat mengadakan kontrol dalam keinginan kita dengan meneliti bayangan-bayangan cipta yang menyertai keinginan tersebut. Apa yang dibayangkan oleh angan-angan, itulah menunjukkan nafsu yang mendorong di belakangnya. Pun perasaan dapat diteliti karena bayangan-bayangan dari cipta tersebut, atau langsung dapat ditangkap oleh indra perasaan.
 
 ## 98. Pancaindera mengembangkan kekuasaan manusia
 
+**Oleh karena pancaindra, manusia dapat memperkembangkan** kekuasaannya terhadap dunia besar ini. Dengan pancaindra manusia dapat melihat dunia besar ini, apa yang berfaedah dan apa yang berbahaya baginya. Dengan kata-kata manusia dapat membawa bahagia atau bencana bagi diri sendiri atau orang lain. Jadi melalui pancaindra manusia menjalankan wewenangnya terhadap dunia raya sekitarnya.
+
 ## 99. Pancaindera saluran kesucian dan ketenangan
+
+Manusia yang dituntun oleh Suskma Sejati menjadi suci, tenang, damai, dan sayang, tidak terpengaruh lagi oleh getaran-getaran dari dunia luar yang masuk ke dalam melalui pancaindra.
+
+Dengan lain perkataan manusia yang mencapai tingkatan demikian akan tetap suci, tenang, damai, dan sayang pada apapun yang dilihat, didengar, dicium, dirasakan oleh diri sendiri dan dikatakan oleh orang lain. Sebaliknya, pancaindranya menjadi saluran bagi kesucian, ketenangan, kedamaian, dan kesayangan yang meluap ke luar. Apa yang mengalir ke luar ini tidak terpengaruh oleh keadaan di dunia besar.
 
 ## 100. Sarang dari kekuasaan ialah otak
 
+Tadi dikatakan, bahwa pancaindra menyebabkan manusia dapat memperkembangkan wewenangnya di dunia raya ini. Sarang dari kekuasaan adalah otak, yang menjadi kancah angan-angan. Dengan angan-angannya manusia dapat membikin rumah, kendaraan, senjata, alat-alat yang sukar seperti radio, telepon, listrik dan lain sebagainya.
+
+Semua ini hasil kekuasaan manusia. Apa yang dibayangkan dengan ciptanya manusia dicapai di dunia ini. Yang membikin apa-apa ini seolah cipta yang membayangkannya. Andaikan di dunia teknik, apa yang dibayangkan oleh cipta merupakan blauwdruk (blue print) dari kekuasaan manusia. Angan-angan merupakan tangan halus manusia.
+
 ## 101. Mencapai puncak kebahagiaan hidup
+
+Getaran dari luar yang masuk melalui pancaindra diperlukan oleh manusia guna pertumbuhan jiwanya. Manusia yang telah bertunggal dengan Suksma Sejati sudah mencapai puncak kehidupan dan tidak memerlukan pertumbuhan lagi.
+
+Pancaindra lalu digunakan hanya untuk menyampaikan sifat-sifat Suksma Sejati kepada dunia luar. Manusia yang telah bertunggal dengan Suksma Sejati melihat tidak seperti kita melihat; mendengar tidak seperti kita mendengar, merasa tidak seperti kita merasa dan lain sebagainya. Apa yang dilihat, didengar, dicium, dirasakan, dikatakan, mengandung kebijaksanaan, kekuasaan, iklim Rahsa Jati, keadilan dan pepadang dari Suksma Kawekas. Maka dari itu manusia yang telah bertunggal dengan Suksma Sejati **mencapai puncak kebahagiaan hidup**. Bahagialah pula orang-orang yang dekat pada manusia tersebut, apabila mereka dapat membuka hati mereka bagi pepadang yang dilimpahkan kepada mereka.
 
 ## 102. Hilangnya Aku
 
+Manusia yang telah bertunggal dengan Suksma Sejati mengakhiri riwayatnya. Bagaimana duduk perkaranya? Pada saat bertunggal, Akunya lenyap dilebur dalam Suksma Sejati. Yang mempunyai riwayat yang bersejarah itu Akunya manusia. Akunya mempunyai titik kelahiran dan titik penghabisan pada saat bertunggal. Riwayatnya Aku panjang sekali, melalui beberapa kali hidup dalam alam kafiruna.
+
+Riwayat badan jasmani kasar berakhir pada saat meninggal dunia, tetapi riwayat badan jasmani halus yang mengemban Akunya manusia berlangsung terus. Dan badan jasmani halus ini beserta Akunya beralih ke badan jasmani kasar yang baru. Demikian seterusnya.
+
+Hilangnya Aku berarti bagi manusia yang bersangkutan berakhirnya penderitaan, berakhirnya pula berlakunya Hukum abadi atau Hukum Karma, berakhirnya juga Hukum Reincamatie.
+
+Manusia yang bertunggal dengan Suksma Sejati telah menaikkan derajat kejiwaan diri sendiri sampai di atas segala hukum yang berlaku bagi seluruh umat manusia. Ia menjadi hukum itu sendiri dan menentukan berlakunya hukum itu bagi seluruh dunia.
+
+Pantaslah bahwa ia menjadi Pepadang Raya, menjadi Sasangka Jati, Penuntun dan Guru kita yang Sejati yang menuntun seluruh umat manusia. Kita menundukkan hati dan kepala dan merebahkan diri terhadap manusia yang bertunggal dengan Suksma Sejati.
+
 ## 103. Hukum Karma
+
+Apabila manusia sudah mencapai tujuan hidup, berarti bahwa riwayatnya sebagai manusia telah habis. Semua kejadian yang kita alami di dunia ini dapat dipakai sebagai pelajaran, bahwa ada sesuatu kekuasaan yang jauh di atas kemauan manusia, yang selalu mengingatkan kepada manusia, bahwa manusia harus hidup melalui garis-garis tertentu. Apabila manusia menyimpang dari garis itu, pasti ia mengalami sesuatu yang mengembalikannya kepada garis tertentu itu. Hukum ini kita sebut Hukum Abadi dari Suksma Kawekas atau **Hukum Karma**.
+
+Ketika Roh Suci diadakan, Roh Suci lalu mendapatkan sesuatu kepribadian. Kepribadian ini mendapatkan kebebasan hidup pada waktu Roh Suci mendapatkan badan jasmani. Pada hakikatnya kebebasan hidup inilah yang membawa manusia menyimpang dari garis tertentu yang dimaksud di atas. Bila Roh Suci sudah bersedia melepaskan kebebasan hidup, maka Roh Suci akan tetap berada di garis tertentu itu. Kebebasan hidup inilah yang menyebabkan manusia merasa hidup.
+
+Kekuatan nafsu-nafsu dan daya penarik dari dunia besar ialah yang menjadi sebab manusia meninggalkan garis tertentu itu. Maka dari itu bagi manusia yang tidak terombang-ambing lagi oleh nafsu-nafsunya sendiri dan tidak tertarik lagi oleh daya pikat dunia besar. Manusia yang demikian masih berada di tengah-tengah masyarakat, masih menyadari keadaan dunia sekitarnya, masih makan, minum, bergaul dengan manusia seperti orang biasa, tetapi sekaligus perbuatan itu tidak menyimpangkan dia dari garis tertentu yang dimaksud tadi. Oleh karena manusia itu tidak mau mempergunakan kebebasan hidup, maka ia berada di dalam keadaan seperti dulu pada waktui ia belum menerima badan jasmani untuk hidup bebas.
 
 ## 104. Menyerah 100% kepada Tuntunan Suksma Sejati
 
-## 105. Lebumya pribadi
+Pada waktu dulu itu ia menyadarkan keadaan Tripurusa. Sekarang ia menyadarkan lagi keadaan Tripurusa, bahkan terus menerus tidak terputus-putus. Keinginan untuk hidup bebas telah lenyap; dunia besar buat dia tidak menarik lagi. Sebaliknya yang menarik hanya kehidupan dalam keadaan Tripurusa saja. Kesadaran hanya ingin kembali saja ke Suksma Sejati. Dalam istilah sehari-hari dapat dikatakan, bahwa manusia yang demikian itu telah **menyerah 100 % kepada tuntunan Suksma Sejati**. Keadaan apa pun di sekelilingnya tidak akan mengendorkan keinginan tadi.
+
+Pun keadaan badan jasmaninya sendiri tidak akan melemahkan keinginan tersebut. Apakah badan jasmaninya lemah, sakit, atau mati, baginya bukan soal. Malahan bila badannya mati, keinginannya akan tercapai. Akan tetapi ia bukan manusia yang ingin mati. Ia hanya ingin bertunggal dengan Suksma Kawekas melalui Suksma Sejati, dalam keadaan badannya hidup atau mati. Terserah kepada Suksma Sejati.
+
+Sekalipun tidak ada keinginan hidup di dunia besar, tetapi manusia pada tingkatan demikian tidak pasif di dalam dunia besar. Ia bersikap memberi kepada dunia raya, memberi pertolongan, memberi pepadang, memberi pengalamannya, memberi kasih sayang kepada siapa saja yang minta padanya dan membutuhkannya.
+
+Ia menerima apa-apa pula dari orang lain, tetapi bukan karena ia membutuhkan apa yang diberikan kepadanya, tetapi karena orang lain itu butuh memberikan apa-apa kepadanya. Apakah yang diberikan kepadanya itu pujaan atau hinaan, ia tidak akan menolaknya. Pujaan tidak dapat lagi memanjakan dia, hinaan tidak dapat lagi melukainya. Ia tetap memberikan tuntunan, baik kepada yang memuja maupun kepada yang menghina. Inilah sikap budiluhur, yakni budi yang berada di atas keadaan dunia.
+
+## 105. Leburnya pribadi
+
+Keinginan untuk bertunggal kembali dengan Suksma Sejati tidak akan membawa kesadarannya lebih dekat kepada Suksma sejati, karena manusia yang tetap sadar akan keadaan Tripurusa, baginya tidak ada lagi soal dekat dan jauh dari Suksma Sejati, tetapi ia belum bertunggal dengan Suksma Sejati.
+
+Siapakah yang menetukan panunggal? Tidak lain hanya Suksma Kawekas dengan perantaraan Suksma Sejati. Soal panunggal ini menjadi kompetensi penuh dari Suksma Kawekas. Roh Suci hanya menyerah saja tanpa batas waktu, tanpa syarat.
+
+Siapakah yang melepaskan Roh Suci dari pangkuannya sehingga adanya Tripurusa? Hanya Suksma Kawekas dengan perantaraan Suksma Sejati. Ini menjadi kompetensi Suksma Kawekas semata-mata.
+Suksma Kawekas pasti akan merangkum kembali Roh Suci di dalam pangkuan-Nya, apabila Roh Suci sementara lama telah menyerahkan diri dan tidak ingin lagi mempergunakan kebebasannya. Kembalinya Roh Suci kepada Suksma Sejati berarti **leburnya pribadi**.
+
+Kesadaran pribadi berarti, bahwa kesadaran terbatas pada batas-batas badan jasmaninya sendiri saja. Leburnya pribadi berarti kesadaran tidak terbatas lagi oleh keadaan badan jasmaninya sendiri, melainkan meluas ke seluruh semesta raya, merembes ke mana-mana. Kesadaran Agung ini tidak lalu diam pasif, tetapi tetap memberikan apa-apa kepada semua yang bersifat hidup. Tuntunan dan pepadang tetap dialirkan, bahkan kekuatan hidup pun diberikan. Kesadaran Agung ini menjadi dhat yang menghidupkan semua yang bersifat hidup.
 
 ## 106. Manusia suci
 
+Lalu apa yang terjadi dengan badan jasmani yang dulu dipakai oleh Roh Suci sebelum bertunggal dengan Suksma Sejati? Badan jasmani kasar tetap utuh dan dapat diumpamakan sesuatu mesin yang digerakkan oleh Suksma Sejati. Seperti alat radio yang menjadi perantara antara yang berbicara dengan pendengar, begitulah badan jasmani tadi menjadi perantara antara Suksma Sejati dengan umat manusia.
+
+Hanya badan jasmani itu mempunyai alat-alat untuk menerima apa saja yang diajukan oleh umat manusia pada Suksma Sejati. Karena Suksma Sejatilah yang langsung memakai alat badan jasmani tersebut, badan jasmani itu disebut suci. Itulah **manusia suci**.
+
+Manusia juga dapat menyampaikan apa-apa kepada Suksma Sejati dalam hatinya sendiri, tetapi permohonan ini kandas di jalan, di hutan angan-angan dan kedung nafsu, sehingga tidak sampai pada alamat yang ditujunya. Manusianya belum suci. Suksma Sejati juga bersabda di dalam hati tiap manusia, tetapi sabda-Nya tidak terdengar di tengah-tengah halilintar angan-angan dan taufan perasaan. Manusianya belum suci.
+
 ## 107. Peristiwa panunggal adalah tenang dan suci
+
+**Peristiwa panunggal** adalah peristiwa tenang dan suci. Kita tidak dapat melihatnya dengan mata yang biasa melihat halilintar, dan kita tidak dapat mendengarnya dengan telinga yang biasa mendengarkan gemuruhnya taufan. Kita dapat menyaksikannya dengan pancaindra yang biasa menangkap kesucian, ketenangan dan kesunyian.
+
+Bagi manusia yang biasa melihat halilintar dan mendengarkan taufan, peristiwa panunggal dan seorang yang suci akan lalu begitu saja seperti jeritan korban yang tenggelam di dalam taufan di tengah samudra raya.
+
+Bagi manusia yang selalu sadar, percaya dan taat, peristiwa panunggal dari seorang yang suci akan menggores di dalam hatinya seperti api yang menjilat badannya. Bekasnya tidak akan hilang selama hidup dan menjadi tanda-tanda sepanjang masa.
+
+Sarjana Budi Santosa menyerukan agar semua siswa Suksma Sejati menjalankan Tri Sila dengan teliti, cermat dan tekun, supaya dapat mencapai tujuan hidup atau menyaksikan peristiwa panunggal dari seorang yang suci.
+
+Sarjana Budi Santosa menjalankan tugasnya sebagai panitera pribadi dari Bapak Pangrasa. Setelah tugas selesai Sarjana Budi Santosa akan minta diri.
 
 ## 108. Berhadapan dengan manusia yang telah bertunggal
 
@@ -884,64 +943,91 @@ Kita misalnya dapat mengadakan kontrol dalam keinginan kita dengan meneliti baya
 
 ## 117. Tuntunan diterjemahkan melalui tiga jurusan
 
-## 118. Jurusan pertama : melalui angan-angan
+## 118. Jurusan pertama: melalui angan-angan
 
-## 119. Jurusan kedua : melalui perasaan
+**Jurusan pertama** ialah jurusan **angan-angan**. Si penerima lalu melihat sesuatu dalam hatinya yang mengandung arti pepadang baginya. Atau diterjemahkannnya tuntunan yang diterimanya sebagai kata-kata yang menyatakan suatu pepadang pula.
 
-## 120. Jurusan ketiga: melalui keinginan kemauan
+Lain segi lagi diterjemahkannya sebagai suatu pengertian tentang sesuatu yang sebelumnya masih belum difahami. Ini juga suatu pepadang.
+Semua itu terjadi secepat kilat dan si penerima tidak menyadari, bahwa ia menerjemahkan tuntunan. Yang diterimanya sebagai pepadang itu sebenarnya bukan orisinil pepadang lagi,tetapi hanya terjemahan.
 
-## 121. Riwayat hidup Bapak Pangrasa merupakan teladan
+## 119. Jurusan kedua: melalui perasaan
 
-## 122. Soal pendidikan perlu sekali diketahui
+**Jurusan kedua** ialah terjemahan melalui **perasaan**. Si penerima lalu merasakan kebahagiaan, atau ia merasa enteng, seolah-olah beban berat yang hingga kini menekan hidupnya menjadi hilang, atau ia merasa sembuh dari sakit hati yang selama itu dideritanya. Mungkin juga ia merasa be bas dari ketakutan yang senantiasa mengejarnya. Ada kalanya ia merasa tenteram lagi setelah bertahun-tahun menderita kegelisahan. Kesemuanya itu tuntunan yang diberikan oleh Bapak Pangrasa kepada siapa saja yang perlu dituntun secara demikian. Tuntunan ini merupakan pula penebusan dari dosa-dosa yang telah lampau ditimbunnya hingga menggelapkan hatinya. Karena tuntunan secara ini, jiwa menjadi terang dan roman muka berseri-seri adanya.
 
-## 123. Mendidik diri pribadi penting sekali
+## 120.Jurusan ketiga: melalui keinginan kemauan
 
-## 124. Placenta
+.**Jurusan ketiga** ialah tuntunan yang diterjemahkan oleh si penerima kepada segi keinginan-kemauan dan diteruskan kepada alat-alat pelaksana. Bagaimana akibatnya? Si penerima lalu menyadari ingin berbuat sesuatu atau mengubah tata susila dan budi bahasanya. Mula-mula ia selalu keras dan kasar. Setelah ia menerima pepadang, ia lalu menjadi lemah lembut dan halus. Atau sebelumnya ia suka bepergian foya-foya atau berjudi, sekarang ia suka sekali di rumah di tengah-tengah keluarganya dan memperhatikan kebahagiaannya. Atau biasanya ia bersikap sombong; setelah ada pepadang, ia bergaul dengan ternan-ternan dan siapa saja secara ramah tamah.
 
-## 125. Ibu bersikap budiluhur
+## 121.Riwayat hidup Bapak Pangrasa merupakan teladan
 
-## 126. Kandungan ibu sorga bagi si anak
+Sekalipun ada tiga Jurusan atau tiga sifat penerimaan pepadang, namun tiap pepadang, bagaimana pun sifatnya, mempengaruhi jiwa manusia sebagai sesuatu keseluruhan. Semua sendi jiwa lambat laun berubah dan perubahan menuju ke suatu keselarasan. Keselarasan yang absolut dan sempuma hanyalah keselarasan yang terdapat di dalam Tripurusa. Maka segenap tuntunan dari Bapak Pangrasa menuju ke satu tujuan yang absolut: Tripurusa.
+Tuntunan dari Bapak Pangrasa mempunyai akhir, yakni bilamana kesadaran manusia sudah bertunggal dengan Suksma Sejati. Karena Bapak Pangrasa melaksanakan sendiri pelajarannya dan mengakhiri pelaksanaannya hingga bertunggal dengan Suksma Sejati, maka **riwayat hidup Bapak Pangrasa** dari hari ke hari merupakan **teladan** bagi mereka **yang menuju ke akhiran pula**
 
-## 127. Sifat-sifat si anak di dalam kandungan ibu: pasif
+## 122.Soal pendidikan perlu sekali diketahui
+
+Bapak Pangrasa mendidik diri pribadi sambil menuntun orang lain. Sebab itu **soal pendidikan** adalah **perlu sekali diketahui**, dan meliputi riwayat manusia dari permulaan ia dilepaskan sebagai Roh Suci masuk ke dalam kandungan ibu sampai kembalinya Roh Suci bertunggal dengan Suksma Sejati. Antara dua soal itu terdapat beberapa kali Roh Suci memakai badan jasmani kasar, hidup di dalam dunia ini dan beberapa kali mempergunakan badan jasmani halus dalam alam kafiruna. Di mana saja, pada saat apa saja, dalam alam apa saja, ia memerlukan tuntunan. Tiap alam dan tiap tingkatan dalam satu alam membutuhkan cara pendidikan tersendiri. Terutama di dalam dunia pada badan jasmani kasar ini terdapat berbagai tingkatan dalam kehidupan manusia. Dalam tingkatan- tingkatan permulaan manusia memerlukan orang lain yang mendidiknya. Pada akhirnya ia tidak membutuhkan lagi perantaraan manusia, melainkan ia menerima tuntunan langsung dari Suksma Sejati.
+
+## 123.Mendidik diri pribadi penting sekali
+
+Soalnya di dalam pendidikan ialah supaya yang dididik mela- lui semua tingkatan itu dengan baik dan jangan macet dalam salah satu tingkatan. Yang mendidik harus menyadari pula. bahwa yang dididik harus memasuki tingkatan di mana ia harus **mendidik diri pribadi**. Ini berarti bahwa yang mendidik semula harus siap-siap untuk mengundurkan diri dan tidak akan diperlukan lagi sebagai pendidik. Karena ini soal yang **penting sekali**, maka Sarjana Budi Santosa akan membentangkan soal riwayat manusia mulai di dalam kandungan sampai mati.
+Karena Pelajaran dari Suksma Sejati yang diterima oleh Bapak Pangrasa merupakan tuntunan pengolahan hati dan angan-angan yang ditujukan kepada Tripurusa, maka Pelajaran dari Suksma Sejati merupakan pula pedoman pendidikan yang membawa manusia kepada kesempurnaan hidup, yakni bertunggal dengan Suksma Sejati.
+
+## 124.Placenta
+
+Ada baiknya bila kita mengerti sedikit tentang pertumbuhan jiwa dari kandungan ibu sampai bertunggalnya manusia dengan Suksma Sejati. Si anak di dalam kandungan ibu mempunyai kedudukan yang istimewa sekali. Badan si anak dihubungkan dengan dinding garba ibu melalui tali pusat, dan tertanamnya tali pusat pada dinding garba ibu itu diselenggarakan oleh **placenta** (bingbing). Melalui placenta dan tali pusat ini disalurkan apa-apa yang dibutuhkan oleh si anak dan kemudian apa-apa yang harus dibuang oleh si anak dikembalikan kepada ibu melalui saluran darah yang terbungkus di dalam tali pusat itu juga. Placenta mempunyai fungsi pula sebagai saringan terhadap penyakit dan zat-zat yang mengandung bisa yang ada di dalam badan si ibu, agar kuman-kuman dan zat-zat berbisa itu tidak masuk ke dalam badan si anak.
+
+## 125.Ibu bersikap budiluhur
+
+Sikap dari **ibu** terhadap anak yang dikandung adalah **sikap** budiluhur, oleh sebab ibu sanggup mengurangi keperluan diri pribadi guna mencukupi kebutuhan si anak. Zat-zat makanan dan bahan perbekalan yang penting-penting tetap mengalir dari ibu kepada anak dengan tiada henti-hentinya, bagaimana pun ibu menderitanya. Si anak tidak perlu mengeluarkan tenaga sedikitpun untuk memperoleh bahan-bahan yang sangat dibutuhkannya itu, misalnya: anak di dalam kandungan tidak bemapas dan tidak makan. Semua bahan pernapasan dan makanan dialirkan melalui tali pusat. Paru-paru si anak belum bekerja. Ia tidak perlu menelan dan mengadakan pencemaan di dalam usus untuk memperoleh zat-zat makanan dengan komplit. Ia tidak usah kencing dan huang air besar, karena kotoran ini belum ada. Zat-zat yang tidak. dibutuhkan lagi disalurkan ke luar melalui tali pusat lagi. Ia tidak perlu mempertahankan diri terhadap serangan penyakit, karena placenta mempunyai tugas meno- lak segala serbuan kuman-kuman dan bisa-bisa yang ber- bahaya.
+
+## 126.Kandungan ibu sorga bagi anak
+
+Di dalam kandungan si bayi terapung-apung di dalam air. Ini mengakibatkan si anak mudah bergerak, tidak merasa berat dan suhu (temperatur) senantiasa konstan. Tidak ada lapar dan haus yang dirasakan oleh si bayi, tidak ada pergantian tidur dan bangun, tiada Ielah dan segar. Kesemuanya itu belum ada. Tidak ada hal-hal yang berlawanan. Si anak tidak pemah merasakan kebutuhan sedikit pun. Semua dilayani dengan memuaskan. Dipandang dari sudut jasmani dapat dikatakan, bahwa **kandungan ibu** itu merupakan sorga **bagi si anak**. Badan jasmani kelak tidak. akan lagi menikmati keadaan seperti di dalam kandungan ibu. Secara badan jasmani atau biologis tiap manusia
+pernah hidup di dalam sorga. **Kelahiran** (keluar dari kandungan ibu) dapat dikatakan **pengusiran dari sorga**. Jadi tiap manusia pemah (secara biologis) mengalami pengusiran dari sorga. Tetapi sayang, kehidupan di dalam sorga kandungan ibu dialami oleh tiap manusia di dalam keadaan a-sadar **(tidak sadar)**. Sekalipun pengalaman hidup di dalam sorga itu dilaluinya dalam keadaan a-sadar, namun pengalaman itu tergores di dalam jiwa manusia, sehingga ada kalanya manusia yang menghadapi kesukaran hidup yang tidak dapat diatasinya, ingin lari kern- bali ke sorga kandungan ibu.
+
+## 127.Sifat-sifat anak dalam kandungan
+
+Bagaimana **sifat-sifat** selanjutnya dari **si anak di dalam kandungan ibu itu ?** Di samping sifat pertama yang asadar itu, sifat menikmati keadaan itu perlu dicatat. Yang dirasakan nikmat itu karena si bayi bebas dari cakra pergolakan dunia raya ini yang mengenal lapar kenyang, Ielah segar, sakit sehat, tidur bangun, siang malam, gembira susah dan seterusnya. Keadaan yang dirasakan oleh si bayi hanya tetap mulia, bahagia, tenang dan tenteram selama sembilan bulan di kan- dung oleh ibu yang mencintainya. Apakah ibu lapar atau sakit, kebutuhan bagi si anak yang ada di dalam kandungan itu tetap mengalir tanpa putus-putus. Karena si anak tidak perlu mengeluarkan tenaga sedikit pun untuk memperoleh kebutuhannya seperti bemapas, menelan, mengunyah, mencemakan, mem- buang kotoran, dapat dikatakan bahwa si anak berada di dalam tingkatan **pasif**. Keadaan pasif ini berubah segera pada saat bayi dilahirkan. Pada saat itu bayi menangis dan sekaligus mulai bernapas. Untuk hidup seterusnya si anak harus menetek, menelan dan buang air besar kecil. Inilah hal-hal yang baru bagi si anak. Maka dari itu si anak di dalam kandungan dapat hidup pasif 100%, tetapi toh semua kebutuhannya terpenuhi. Tentunya sifat-sifat yang disebut di atas itu tidak disadari demikian oleh si bayi, tetapi semua-semua itu dipandang darisudut manusia dewasa.
 
 ## 128. Tidak bertanggung jawab dan tidak berdaulat
 
-Selanjutnya si anak di dalam kandungan tidak ikut campur tangan apa-apa tentang kehidupan diri pribadi. Segala-galanya diurus dan ditanggung oleh si ibu. Juga dalam hal mengambil zat-zat yang biasanya didapat dari pernapasan dan makanan, **si anak tidak ikut bertanggung jawab.** Semua itu diselesaikan oleh si ibu. 
+Selanjutnya si anak di dalam kandungan tidak ikut campur tangan apa-apa tentang kehidupan diri pribadi. Segala-galanya diurus dan ditanggung oleh si ibu. Juga dalam hal mengambil zat-zat yang biasanya didapat dari pernapasan dan makanan, **si anak tidak ikut bertanggung jawab.** Semua itu diselesaikan oleh si ibu.
 
-Pernapasan, pencenaan, urusan temperatur badan, pembelaan diri terhadap serangan kuman-kuman, dan hubungan dengan dunia luar diurus dan ditanggung oleh si ibu. Semua itu termasuk hal-hal yang vital. Andaikata negara, hal-hal yang vital itu meliputi urusan dalam negeri, keamanan, dan luar negeri. 
+Pernapasan, pencenaan, urusan temperatur badan, pembelaan diri terhadap serangan kuman-kuman, dan hubungan dengan dunia luar diurus dan ditanggung oleh si ibu. Semua itu termasuk hal-hal yang vital. Andaikata negara, hal-hal yang vital itu meliputi urusan dalam negeri, keamanan, dan luar negeri.
 
 Jadi si anak di dalam kandungan tidak berdaulat dan tidak mempunyai tanggung jawab sama sekali. Dalam penyelesaian persoalan-persoalan mengenai si anak sendiri, ia tidak penah diikutsertakan. Dengan demikian titik berat penyelesaian terletak pada pihak di luar si bayi, yakni ibu.
 
-Bila kita memandang ibu dan bayi yang dikandung itu sebagai dua pribadi (dan ini sebenarnya tidak betul!) maka ibu adalah pihak **pemberi** dan bayi pihak **penerima**. Selama ibu mengandung, ia merasa dirinya tidak berpisah pribadi dari anaknya. Ibu merasa sebagai satu pribadi dengan anak. Perpisahan menjadi dua pribadi baru terjadi setelah kelahiran si anak. 
+Bila kita memandang ibu dan bayi yang dikandung itu sebagai dua pribadi (dan ini sebenarnya tidak betul!) maka ibu adalah pihak **pemberi** dan bayi pihak **penerima**. Selama ibu mengandung, ia merasa dirinya tidak berpisah pribadi dari anaknya. Ibu merasa sebagai satu pribadi dengan anak. Perpisahan menjadi dua pribadi baru terjadi setelah kelahiran si anak.
 
 Dalam perimbangan antara ibu dan anak di dalam kandungan, si ibu bertindak sebagai pemimpin, penuntun, dan pembimbing yang mutlak. Tidak ada satu soal pun, walau kecil, diserahkan kepada anak untuk diurus sendiri. Semua soal dari anak tergantung 100% dari ibu. Si anak tidak mempunyai kelonggaran atau kebebasan sedikit pun terhadap ibu. Secara biologis si anak terikat sama sekali, jadi **tidak mempunyai otonomi** terhadap ibu.
 
 ## 129. Rekapitulasi
 
-Apabila dibuat **rekapitulasi**, sifat-sifat si anak di dalam 
-kandungan ibu itu adalah sebagai berikut : 
-1. asadar 
-2. nikmat. 
-3. pasif. 
-4. tidak bertanggungjawab. 
-5. tidak berdaulat. 
-6. titik berat pada luar diri sendiri. 
-7. penerima. 
+Apabila dibuat **rekapitulasi**, sifat-sifat si anak di dalam
+kandungan ibu itu adalah sebagai berikut :
+
+1. asadar
+2. nikmat.
+3. pasif.
+4. tidak bertanggungjawab.
+5. tidak berdaulat.
+6. titik berat pada luar diri sendiri.
+7. penerima.
 8. tidak ada otonomi.
 
 ## 130. Anak dilahirkan
 
 Bagaimana keadaannya bila si **anak dilahirkan?** Pada saat lahir, anak keluar dari ruang garba si ibu dan masuk ke dalam ruang semesta raya, yaitu ruang makrokosmos. Hubungan dengan ibu melalui placenta dan tali pusat diputus. Si anak segera menangis karena pergantian ruang hidup yang serba berlainan secara mendadak. Dengan teriakan yang pertama manusia kecil itu mulai bernapas. Paru-paru bekerja dengan sekaligus dari mulai menyaring zat-zat dari hawa yang dihirup di dalam pernapasan. Penyaluran darah berubah dan dari paru-paru oleh darah diambil zat-zat yang diperlukan untuk hidup.
 
-Pada saat terputusnya tali pusat, terhentilah aliran bahan makanan dari sumber ibu. Terpaksalah kini si anak mencarinya sendiri dan mengambilnya dari isi perut. Maka perut harus diisi dan si anak baru dapat menetek air susu dari ibu. Untuk beberapa bulan yang menjadi bahan makanan dan minuman adalah air susu dari ibu, tetapi sekarang si anak harus mengeluarkan tenaga untuk makan minum; ia harus menetek, menelan dan mengadakan pencemaan di dalam ususnya sendiri. 
+Pada saat terputusnya tali pusat, terhentilah aliran bahan makanan dari sumber ibu. Terpaksalah kini si anak mencarinya sendiri dan mengambilnya dari isi perut. Maka perut harus diisi dan si anak baru dapat menetek air susu dari ibu. Untuk beberapa bulan yang menjadi bahan makanan dan minuman adalah air susu dari ibu, tetapi sekarang si anak harus mengeluarkan tenaga untuk makan minum; ia harus menetek, menelan dan mengadakan pencemaan di dalam ususnya sendiri.
 
-Sisa bahan makanan harus dibuangnya sendiri. Sekarang si anak mengenal hawa panas dan dingin, mengenal lapar dan kenyang, tidur dan bangun, Ielah dan segar. Ah, sorga telah ditinggalkannya untuk selama-lamanya. 
+Sisa bahan makanan harus dibuangnya sendiri. Sekarang si anak mengenal hawa panas dan dingin, mengenal lapar dan kenyang, tidur dan bangun, Ielah dan segar. Ah, sorga telah ditinggalkannya untuk selama-lamanya.
 
 ## 131. Keaktifan vital biologis
 
 Si anak menangis tersedu-sedu, tetapi sejarah tidak akan mengembalikan apa yang telah menjadi riwayat. Kenikmatan tidak mungkin 100% utuh lagi. Tidak mungkin ia secara pasif 100% dipenuhi kebutuhannya. Pernapasan, minum, menelan, mengatur temperatur, melawan infeksi sudah merupakan keaktifan, sekalipun keaktifan ini hanya terletak di dalam bidang-bidang yang vital biologis saja. Apabila anak tidak mau menjalankan keaktifan ini, ia akan mundur kesehatannya yang dapat menyebabkan ia mati.
 
-Bagi anak dengan demikian tidak ada pilihan lagi daripada meninggalkan keadaan pasif 100% dan mengerjakan keaktifan untuk memelihara hidupnya. Bila tidak, sangsinya memang berat. Dalam hal **keaktifan vital biologis** ini si ibu tidak dapat menolong. Si anak harus mengerjakannya sendiri. Ini berarti bahwa si anak sudah mulai bertanggung jawab soal pernapasan, minum, makan, pencernaan, membuang kotoran, tidur, pertahanan terhadap infeksi, dan beberapa hal lagi yang termasuk vital biologis. 
+Bagi anak dengan demikian tidak ada pilihan lagi daripada meninggalkan keadaan pasif 100% dan mengerjakan keaktifan untuk memelihara hidupnya. Bila tidak, sangsinya memang berat. Dalam hal **keaktifan vital biologis** ini si ibu tidak dapat menolong. Si anak harus mengerjakannya sendiri. Ini berarti bahwa si anak sudah mulai bertanggung jawab soal pernapasan, minum, makan, pencernaan, membuang kotoran, tidur, pertahanan terhadap infeksi, dan beberapa hal lagi yang termasuk vital biologis.
 
 Bilamana si anak tidak dapat mengambil zat hawa dari pernapasan karena paru-paru lemah, atau bila ia tidak dapat mengambil zat makanan karena usus sakit, itu semua risiko si anak sendiri dan ia hams memikul akibatnya sendiri.
 
@@ -957,21 +1043,21 @@ Si anak setelah dilahirkan mempunyai **garis pertumbuhan sendiri** yang lepas da
 
 ## 133. Hubungan melalui perasaan kasih sayang
 
-Dengan terpisahnya si anak dari badan ibu dan terjadinya suatu pribadi sendiri, tidak hilanglah hubungan perasaan antara ibu dan anak. Dulu hubungan itu nyata secara strukturil diselenggarakan oleh tali pusat. Sekarang **hubungan** itu hanya melalui perasaan kasih sayang saja. Perasaan kasih sayang membawa serta rasa tanggung jawab, rasa melindungi, membimbing, dan merawat. Dulu pada waktu sang ibu hamil juga melindungi, membimbing, merawat, mengandung dan mempersiapkan si bayi, supaya kelak setelah dilahirkan ia dapat memulai kehidupan yang bebas. Tetapi kehidupan bebas ini sementara lama masih dijalankan di dalam kandungan keluarga. 
+Dengan terpisahnya si anak dari badan ibu dan terjadinya suatu pribadi sendiri, tidak hilanglah hubungan perasaan antara ibu dan anak. Dulu hubungan itu nyata secara strukturil diselenggarakan oleh tali pusat. Sekarang **hubungan** itu hanya melalui perasaan kasih sayang saja. Perasaan kasih sayang membawa serta rasa tanggung jawab, rasa melindungi, membimbing, dan merawat. Dulu pada waktu sang ibu hamil juga melindungi, membimbing, merawat, mengandung dan mempersiapkan si bayi, supaya kelak setelah dilahirkan ia dapat memulai kehidupan yang bebas. Tetapi kehidupan bebas ini sementara lama masih dijalankan di dalam kandungan keluarga.
 
-Sekarang keluargalah (yang terdiri dari ayah, ibu dan kakak) yang mengandung, merawat, membimbing, dan mempersiapkan si adik kecil. 
+Sekarang keluargalah (yang terdiri dari ayah, ibu dan kakak) yang mengandung, merawat, membimbing, dan mempersiapkan si adik kecil.
 
 ## 134. Secara sosial belum sadar
 
 Dipandang dan sudut fisik si bayi telah dilahirkan, akan tetapi dipandang dari sudut kesosialan si bayi belum mempunyai arti apa-apa. Ia hanya diberi nama dan dicatat sebagai penduduk baru saja.
 
-Secara sosial si anak belum sadar, masih pasif, masih kolektif, yang berarti belum mempunyai kedudukan sosial, masih nikmat, karena tidak mengurus sandang pangan sendiri, belum bertanggung jawab. Titik berat masih ada pada ayah ibu semua; ia belum berdaulat dan belum ada otonomi apa-apa. Pertumbuhan si anak pesat adanya. 
+Secara sosial si anak belum sadar, masih pasif, masih kolektif, yang berarti belum mempunyai kedudukan sosial, masih nikmat, karena tidak mengurus sandang pangan sendiri, belum bertanggung jawab. Titik berat masih ada pada ayah ibu semua; ia belum berdaulat dan belum ada otonomi apa-apa. Pertumbuhan si anak pesat adanya.
 
 Mula-mula ia belajar menggerakkan badan, sehingga ia dapat berjalan melalui menungkup, duduk, merangkak, dan berdiri. Bersama itu pancaindera mulai hidup dan susunan urat syarat pusat mulai mengatur pertumbuhan badan dan getaran-getaran yang ditangkap oleh pancaindera. Angan-angan sementara masih sederhana, tetapi perasaan telah sanggup menerima iklim rumah tangga. Sudah ada perasaan susah, bila ia mengalami hal-hal yang tidak enak. Sebaliknya perasaan menjadi gembira, apabila ia merasakan iklim nikmat karena kasih sayang.
 
 ## 135. Penyusunan iklim dan contoh
 
-Pertumbuhan si anak sangat dipengaruhi oleh perasaannya sendiri, dan ini tergantung dari iklim rumah tangga. Selain dari itu si anak baru dapat berkembang melalui apa yang ditangkap oleh pancaindera, sekalipun semua itu belum dapat dimengerti. Dengan lain perkataan, si anak sangat terpengaruh oleh contoh-contoh yang diberikan oleh ayah, ibu dan kakak-kakak. 
+Pertumbuhan si anak sangat dipengaruhi oleh perasaannya sendiri, dan ini tergantung dari iklim rumah tangga. Selain dari itu si anak baru dapat berkembang melalui apa yang ditangkap oleh pancaindera, sekalipun semua itu belum dapat dimengerti. Dengan lain perkataan, si anak sangat terpengaruh oleh contoh-contoh yang diberikan oleh ayah, ibu dan kakak-kakak.
 
 **Penyusunan iklim dan contoh** adalah pendidikan yang tertua. Baru bilamana si anak dapat berbicara dengan lengkap dan mengerti pembicaraan orang tuanya, pendidikan meningkat ke taraf verbal atau lisan. Pendidikan dengan kata-kata merupakan cara tuntunan yang termuda dan yang diterima oleh si anak melalui angan-angannya.
 
@@ -985,13 +1071,13 @@ Pendidik yang pandai dan dapat berbicara lancar, akan tetapi yang melupakan fakt
 
 Apakah yang menjadi **sumber iklim rumah tangga** itu? Faktor utama yang bertanggung jawab atas iklim keluarga ialah rasa kasih sayang, yang bergema di dalam kalangan keluarga. Rasa cinta dari ibu terhadap anak-anak membawa iklim yang bagus. Tentunya tiap orang tua mengatakan, bahwa ia cinta kepada anak-anaknya.
 
-Rasa kasih sayang yang tidak disampaikan melalui perbuatan dan kata-kata yang sesuai dengan rasa cinta tadi akan banyak meniadakan iklim yang optimal bagus itu. 
+Rasa kasih sayang yang tidak disampaikan melalui perbuatan dan kata-kata yang sesuai dengan rasa cinta tadi akan banyak meniadakan iklim yang optimal bagus itu.
 
-Misalnya seorang ibu atau bapak mengatakan, bahwa ia cinta kepada anaknya, tetapi ia senantiasa menggertak bila berbicara dengan anaknya, dan tidak pemah menggunakan kata-kata manis guna membombong dan merayu pada tempatnya. Kata-kata yang selalu keras dari ayah ibunya dan kekurangan manjaan dan pujian bila berbuat baik, dirasakan oleh si anak sehagai cermin dari isi hati ayah ibu. Padahal kemungkinan besar tidak demikian adanya. Ayah ibu betul-betul cinta kepadanya. 
+Misalnya seorang ibu atau bapak mengatakan, bahwa ia cinta kepada anaknya, tetapi ia senantiasa menggertak bila berbicara dengan anaknya, dan tidak pemah menggunakan kata-kata manis guna membombong dan merayu pada tempatnya. Kata-kata yang selalu keras dari ayah ibunya dan kekurangan manjaan dan pujian bila berbuat baik, dirasakan oleh si anak sehagai cermin dari isi hati ayah ibu. Padahal kemungkinan besar tidak demikian adanya. Ayah ibu betul-betul cinta kepadanya.
 
 ## 137. Budi bahasa lemah-lembut makanan lezat bagi jiwa
 
-Sering kali dikira·bahwa jaminan makan, rumah, pakaian, ongkos sekolah, yang diberikan oleh orang tua itu sudah cukup untuk menginsafkan si anak akan kebaikan ibu, yang harus dihormati dan dijunjung tinggi. Tidak masuk akal bagi ayah dan ibu, bahwa budi bahasa yang lemah lembut dan baik itu merupakan pula makanan lezat bagi jiwa si anak. Makanan lezat ini setelah dikupas menjadi iklim dan contoh di dalam pendidikan. 
+Sering kali dikira·bahwa jaminan makan, rumah, pakaian, ongkos sekolah, yang diberikan oleh orang tua itu sudah cukup untuk menginsafkan si anak akan kebaikan ibu, yang harus dihormati dan dijunjung tinggi. Tidak masuk akal bagi ayah dan ibu, bahwa budi bahasa yang lemah lembut dan baik itu merupakan pula makanan lezat bagi jiwa si anak. Makanan lezat ini setelah dikupas menjadi iklim dan contoh di dalam pendidikan.
 
 Kata-kata keras dan kekurangan pelukan dan manjaan merupakan makanan berat tanpa vitamin yang berharga bagi jiwa si anak. Bagi si anak keadaan tidak jauh berbeda dengan diindekoskan.
 
@@ -1034,5 +1120,3 @@ Kata-kata keras dan kekurangan pelukan dan manjaan merupakan makanan berat tanpa
 ## 156. Masuk ke dalam Alam Sejati
 
 ## footnote
-
-
