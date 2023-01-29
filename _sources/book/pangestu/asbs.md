@@ -34,13 +34,13 @@ Cahaya-cahaya yang dilepaskan oleh dan dari Suksma Sejati belum ada kancahnya. C
 
 Samudera yang diam simbolnya Suksma Kawekas; samudra yang bergelombang candranya Suksma Sejati.
 
-Titik-titik air yang menguap melepaskan diri dari samudra adalah kecil dan terhatas, hilamana dihandingkan dengan samudranya tetapi sama-sama air. [Roh Suci](penjelasan-tripurusa) adalah kecil dan terbatas hila dihandingkan dengan Suksma Sejati dan Suksma Kawekas, tetapi sama-sama suci.
+Titik-titik air yang menguap melepaskan diri dari samudra adalah kecil dan terbatas, bilamana dihandingkan dengan samudranya tetapi sama-sama air. [Roh Suci](penjelasan-tripurusa) adalah kecil dan terbatas hila dihandingkan dengan Suksma Sejati dan Suksma Kawekas, tetapi sama-sama suci.
 
-Terbatasnya Roh Suci menimbulkan adanya individualitas prihadi yang terhatas pula. Waktu itu Roh Suci dikandung dalam suasana bahagia oleh Suksma Sejati dan Suksma Kawekas.
+Terbatasnya Roh Suci menimbulkan adanya individualitas prihadi yang terbatas pula. Waktu itu Roh Suci dikandung dalam suasana bahagia oleh Suksma Sejati dan Suksma Kawekas.
 
 ## 4. Inti sari sahadat sebagai pedoman hidup
 
-Roh Suci menyadari bahwa ia asal dari Suksma Sejati dan Suksma Kawekas, dan menyadari perimhangan hirarki antara Suksma Kawekas, Suksma Sejati, dan ia sendiri. Waktu itu hanya kesadaran semata-mata, belum ada hahasa apa pun, karena waktu itu belum ada hadan jasmani. Roh Suci menyadari pula bahwa ia harus kembali lagi meleburkan diri dalam Suksma Sejati dengan menghilangkan individualitasnya. Titik air harus kembali lagi ke asal mulanya: samudra yang tak bertepi.
+Roh Suci menyadari bahwa ia asal dari Suksma Sejati dan Suksma Kawekas, dan menyadari perimbangan hirarki antara Suksma Kawekas, Suksma Sejati, dan ia sendiri. Waktu itu hanya kesadaran semata-mata, belum ada bahasa apa pun, karena waktu itu belum ada badan jasmani. Roh Suci menyadari pula bahwa ia harus kembali lagi meleburkan diri dalam Suksma Sejati dengan menghilangkan individualitasnya. Titik air harus kembali lagi ke asal mulanya: samudra yang tak bertepi.
 
 Kesadaran ini bila diterjemahkan dalam kata-kata isinya sebagai berikut:
 
@@ -1093,7 +1093,7 @@ Kesiswaan terhadap Sang Guru Sejati tidak akan herhasil baik tanpa penghalusan h
 
 Sikap ayah dan ibu terhadap anak adalah kesempatan yang bagus sekali untuk mempercepat kesiswaan terhadap Suksma Sejati karena kasih sayang orang tua terhadap anak beserta rasa tanggung jawabnya adalah pembawaan bagi orang tua dan tidak perlu dipaksakan kepada orang tua.
 
-##140. Iklim baik: bila ayah dan ibu rukun
+## 140. Iklim baik: bila ayah dan ibu rukun
 
 Kesempatan untuk menyusun iklim rumah tangga bagi seorang ayah tidak begitu luas seperti bagi seorang ibu. Ada kalanya seorang ayah membawa suasana kantor yang panas dan penuh kesulitan-kesulitan ke dalam rumah tangga. Misalnya: seorang ayah mendapat tegoran dari atasannya yang dirasakan tidak adil, dan si ayah merasa sakit hati. Sampai di rumah secara sadar atau tidak, rasa sakit hati itu disemprotkan terhadap keluarganya, sehingga iklim rumah tangga menjadi buruk.
 
