@@ -1083,40 +1083,162 @@ Kata-kata keras dan kekurangan pelukan dan manjaan merupakan makanan berat tanpa
 
 ## 138. Budi darma rasa kasih sayang
 
+Ada kalanya seorang ibu atau ayah merasa betul-betul cinta kepada anaknya, akan tetapi hila ia ingin menerjemahkan rasa cinta tadi di dalam hudi hahasa yang halus, lalu timhul rasa segan atau malu, dan ayah atau ibu tidak jadi herbuat menurut perasaan yang sesungguhnya, yang sehenamya budi hahasayang halus itu sangat dibutuhkan, dinanti-nanti dan menyegarkan jiwa si anak.
+
+Dengan demikian rasa cinta dari ibu dan ayah hanya dikandung saja dan tidak didarmakan. Budi darma rasa **kasih sayang** dalam hudi hahasa yang halus inilah senyatanya juga menguntungkan ayah dan ihu sendiri, oleh sebab ayah dan ibu karena budi bahasa yang halus itu akan mempertinggi derajat kejiwaan diri sendiri.
+
 ## 139. Sikap ayah dan ibu terhadap anak
 
-## 140. Iklim baik: hila ayah dan ibu rukun
+Kesiswaan terhadap Sang Guru Sejati tidak akan herhasil baik tanpa penghalusan hudi pekerti. Mendekat kepada Sang Guru Sejati berarti mendekat kepada tingkatan kejiwaan yang tinggi dan halus di dalam hati kita sendiri. Perbuatan dan perkataan yang kasar-kasar senantiasa akan menjauhkan kita dari Suksma Sejati, yang herarti meniadakan usaha-usaha yan tadinya telah berhasil.
+
+Sikap ayah dan ibu terhadap anak adalah kesempatan yang bagus sekali untuk mempercepat kesiswaan terhadap Suksma Sejati karena kasih sayang orang tua terhadap anak beserta rasa tanggung jawabnya adalah pembawaan bagi orang tua dan tidak perlu dipaksakan kepada orang tua.
+
+##140. Iklim baik: bila ayah dan ibu rukun
+
+Kesempatan untuk menyusun iklim rumah tangga bagi seorang ayah tidak begitu luas seperti bagi seorang ibu. Ada kalanya seorang ayah membawa suasana kantor yang panas dan penuh kesulitan-kesulitan ke dalam rumah tangga. Misalnya: seorang ayah mendapat tegoran dari atasannya yang dirasakan tidak adil, dan si ayah merasa sakit hati. Sampai di rumah secara sadar atau tidak, rasa sakit hati itu disemprotkan terhadap keluarganya, sehingga iklim rumah tangga menjadi buruk.
+
+Apabila hal yang demikian itu sering kali terjadi, lalu menjadi kebiasaan, maka ibu dan anak-anaknya menantikan kedatangan ayah dari kantor dengan berdebar-debar dan penuh rasa ketakutan.
+
+Anak-anak lalu mencari-cari akal supaya tidak bertemu dengan ayahnya, dan doa ibu makin meningkat dengan mendekatnya waktu pulangnya sang ayah yang dicintainya.
+
+Tidak mungkin pendidikan dengan iklim yang demikian itu menjadi baik. Atau apabila sang ayah mempunyai waktu terluang sedikit saja mencari kesenangan di luar rumah tangga tanpa mengajak istri dan anak-anak. Biasanya istri dan anak dibiarkan begitu saja tanpa uang yang mencukupi untuk berliburan. Ini juga bukan cara untuk menyediakan iklim yang diperlukan guna pendidikan yang diinginkan. **Iklim yang sebaik-bailmya** ialah bila ayah dan ibu selalu rukun adanya.
 
 ## 141. Bahasa jiwa dari ayah dan ibu
 
+Karena di dalam rumah tangga kadang-kadang ada perselisihan, maka perselisihan itu harus diselesaikan, apabila anak-anak tidak ada dan tidak dapat mendengar adanya percekcokan. Kita tidak boleh melupakan bahwa ayah dan ibu bersama merupakan satu keutuhan dan keseluruhan bagi anak-anak dan merupakan tulang punggung bagi jiwa para anak-anak yang masih sangat membutuhkan pegangan yang nyata.
+
+Percekcokan antara ayah dan ibu yang menghebat membawa bencana terpendam bagi anak-anak. Yang menyusun iklim di dalam pribadi seseorang itu bahasa jiwanya, bukan perkataan-perkataan orang itu. Yang menyusun iklim rumah tangga itu juga **bahasa jiwa dari ayah dan ibu**. Anak:-anak:, terutama anak:- anak: kecil, belum memahami benar-benar kata-kata yang manis dan muluk-muluk, tetapi dapat menangkap dengan perasaannya iklim rumah tangga secara halus.
+
+Tidak: perlu dijelaskan lagi bahwa yang membawa iklim tenang dan bahagia itu pelaksanaan dari Hasta Sila, dan menjauhkan diri dari Pantangan Suksma Kawekas.
+
 ## 142. Lupa menjalankan Hasta Sila
+
+lklim yang bahagia sering kali dianggap seperti hal yang semestinya ada, sama saja seperti kesehatan. Bila kesehatan sedang baik, rasanya enak saja seperti hal yang seharusnya ada. Tetapi bila kita sakit perut, pusing, atau sakit gigi, barulah terasakan bahwa kita mempunyai perut, kepala, dan gigi. Apabila kita **lupa menjalankan Basta Sila** dan melanggar pantangan, barulah kita merasa adanya penderitaan di dalam kegelapan. Baru kita menghargai iklim jiwa yang bahagia yang telah kita kacaukan sendiri itu. Rasa sakit di dalam dada selalu ada saja; jantung seperti ditusuk-tusuk, hati seperti diiris-iris dengan pisau. Kita tiap kali kaget (terperanjat) dan tidak dapat tidur.
+
+Untunglah manusia yang kemudian dapat menerima sabda hiburan dan sabda penebus dosa dari Suksma Sejati.
 
 ## 143. Yang penting bagi manusia kehidupan jiwanya
 
+Setelah dilahirkan dan bayi keluar dari kandungan ibu secara biologis bayi menganut penghidupan sendiri. Seperti telah dijelaskan di muka, si anak: kecil sekarang merupakan kesatuan tersendiri di dalam kehidupan di semesta raya ini. Ia menerima:, unsur-unsur sendiri untuk hidup dan untuk bertumbuh. Sekalipun alat-alat badan jasmani belum dewasa, namun kemampuan telah ada dan alat-alat lengkap adanya untuk meneruskan pertumbuhannya.
+
+Tetapi **bagi manusia yang penting ialah kehidupan jiwanya** yang bertumbuh di atas dasar kehidupan biologis. Kehidupan jiwa inilah yang mengangkat manusia di atas tingkatan kehidupan hewan. Kehidupan jiwa inilah yang memberikan kepada manusia kebebasan bertindak, kebebasan untuk memilih, kebebasan untuk menentukan nasibnya sendiri, kebebasan untuk menjalankan kehidupan yang menyimpang dari kebutuhan badan jasmani atau kebutuhan biologis.
+
+Pada hewan tidak ada kebebasan bertindak. Kehidupan mereka ditentukan oleh susunan badan jasmaninya dan alat-alat di dalam badan jasmaninya. Misalnya seekor ayam tidak akan mencoba untuk berenang, seekor kerbau tidak akan memilih makanan selain rumput dan daun-daun, burung manyar tidak akan meniru bentuk sarang dari burung lain. Bila musim bertelur tiba, semua binatang yang bersangkutan bertelur. Apabila musim kesembilan tiba, semua anjing mencari jodohnya. Seluruh kota merayakan masa perkawinan anjing-anjing. Tiada seekor anjing pun yang menentukan penyusunan keluarganya di dalam masa lain, bagaimanapun tempo-tempo ini diinginkan oleh yang mempunyai anjing.
+
+Semua ini menunjukkan bahwa kehidupan semua hewan ditentukan oleh struktur dan fungsi dari badan jasmaninya. Hewan tidak dapat menyimpang dari kehidupan biologis. Lain halnya dengan manusia. Kemampuan untuk menyimpang dari kehidupan biologis dan untuk menentukan nasibnya sendiri didapat dari timbulnya kesadaran. Kesadaran inilah yang mengangkat manusia di atas kehidupan kehewanan. Adanya kebebasan ini menimbulkan kemudian aktivitas dan inisiatif untuk bertindak.
+
 ## 144. Yang disebut: pribadi dan otonomi
+
+Kesadaran yang hanya dirasakan di dalam badan jasmaninya sendiri ini disebut pribadi. Kebebasan untuk melepaskan diri dari kehidupan biologis dan memilih nasibnya sendiri itu disebut otonomi dan mengangkat jiwa manusia di atas jiwa kolektif itu. Ia sekarang mempunyai kepribadian. Kebebasan itu dengan sendirinya membawa tanggung jawab atas pilihannya sendiri. Tanggung jawab mengalihkan titik berat kepada diri pribadi.
+
+Rasa nikmat yang telah berangsur-angsur hilang setelah dilahirkan, dicoba oleh si anak dengan diganti dengan aktivitas untuk melaksanakan sesuatu. Nikmat secara biologis diganti dengan nikmat secara psikologis atau kejiwaan. Sekarang si anak memasuki tingkatan di mana ia tidak hanya menerima saja, melainkan juga mulai memberikan apa-apa kepada sekitarnya, misalnya memberikan sayang, memberikan bakti kepada orang tua, memberikan prestasi kepada sekitarnya.
+
+Keadaan yang menjadi dasar perubahan yang prinsipil ini temyata mengandung kemampuan atau kekuasaan yang mempunyai pusat di dalam rasa Aku. Rasa inilah yang membawa rasa berdaulat, bebas, mampu dan kuasa.
 
 ## 145. Kemratu-ratu
 
+Kesadaran pribadi itu bukan sesuatu hal yang tetap, melainkan sesuatu yang menunjukkan perkembangan. Makin lama kesadaran makin meluas dan terang. Sifat-sifat yang terkandung di dalam kesadaran makin lama juga tambah kuat. Sudah diketahui oleh umum bahwa mulai timbulnya kesadaran pribadi dengan Akunya itu disertai dengan sifat bersimaharajalela atau **kemratu-ratu**.
+
+Sementara si anak masih di dalam lingkungan keluarga, sementara itu secara sosial yang bertanggungjawab masih ayah dan ibu. Si anak makin lama makin besar dan dapat bergerak leluasa, tetapi sementara jiwanya masih belum dapat berpisah dengan ibu dan ayah. Pengertian bahwa ayah atau ibu ada di dekatnya membawa perasaan aman. Bila si anak berjalan-jalan dengan ibu, maka ia harus memegang tangan si ibu atau harus melihat si ibu. Apabila ibu tidak tampak lagi, si anak segera menjadi gelisah dan menangis
+
 ## 146. Mempunyai adik
+
+Iklim rumah tangga sangat mempengaruhi pertumbuhan jiwanya. Di samping itu ia menerima pendidikan dari contoh-contoh yang diberikan oleh orang tua dan kakak-kakaknya, baik disengaja maupun tidak disengaja.
+
+Setelah ia **mempunyai adik** sendiri, ia harus memberikan contoh kepada adik itu. Tetapi ia juga menarik pelajaran dari tingkah laku si adik, yakni bahwa apa yang diperbuat oleh adik itu ia tidak boleh dan tidak pantas melakukannya. Dengan datangnya adik ia sudah harus lebih memberi daripada menerima
 
 ## 147. Waktu sekolah
 
+Pada **waktu sekolah** ia mulai mengalami bahwa ia tidak se1alu dapat bersandar kepada orang tua dan kakak-kakak. Pelajaran-pelajaran di seko1ah harus dimengerti sendiri dan dihafalkan sendiri. Tidak mungkin ibu menghafalkan untuk dia. Inilah suka duka dari kesadaran, dari otonomi, dari pribadi sendiri, yang mengejar cita-citanya dari tanggung jawab sendiri. Semua akibat dari jerih payahnya dipikulnya sendiri.
+
+Bila ada kesukaran yang terlampau besar, ia mendekat kepada ibu, seolah-olah ia tidak mau berdaulat lagi; ia tidak mau aktif dan ingin mengelakkan tanggung jawab dan mengembalikan titik berat kepada ibu. Bila mungkin ia ingin kembali ke dalam kandungan ibu yang dirasakan nikmat 100% itu. Tentu saja ia tidak akan kembali di dalam bentuk yang sudah lampau.
+
 ## 148. Anak menjadi dewasa
+
+Makin besar si anak, makin lepas hubungannya dengan orang tua, makin jauh ia bergerak dari rumah orang tua. Ia memilih kesenangan sendiri. Sekarang ia malahan tidak senang selalu dekat kepada ayah-ibu; ia lebih suka dekat kepada orang lain yang bukan dari keluarganya. Nafsu birahi atau seks telah memainkan peranannya. Kita tidak boleh memandang nafsu seks sebagai sesuatu nafsu yang jelek saja. Nafsu seks mempunyai tugas untuk membawa **si anak** yang **menjadi dewasa**, keluar dari kalangan keluarganya sendiri, karena nafsu ini mempunyai daya pilih (selektif). Si anak yang telah menjadi dewasa tidak memilih jodohnya di dalam kalangan sendiri, melainkan jauh di luar hubungan keluarganya
+
+Terhadap anggota keluarganya sendiri nafsu seks bersikap dingin. Semua ini menyebabkan bahwa nafsu seks membawa si anak besar keluar dari kalangan keluarganya untuk membentuk keluarga baru sendiri, di mana ia sekarang menjadi kepala keluarga yang bertanggung jawab. Ini sama saja seakan-akan ada sesuatu kelahiran lagi, yakni lahir dari kandungan rumah tangga orang tua untuk membentuk kesatuan sosial baru, yaitu rumah tangga sendiri. Kekuatan yang menjadi pendorong kelahiran secara sosial ini ialah nafsu seks.
+
+Tetapi nafsu seks juga dapat disalahgunakan. Setelah mendirikan keluarga sendiri, orang mungkin menyalahgunakan nafsu itu untuk acap kali membentuk keluarga baru.
 
 ## 149. Kesetiaan dan kebaktian
 
+Kini orang yang menjadi kepala keluarga (atau ibu keluarga) tidak mempunyai hubungan apa-apa lagi dengan orang tuanya, baik secara psikologis maupun sosial. Ia berdiri bebas. Hubungan antara dia dengan orang tuanya hanya dilaksanakan melalui rasa kesetiaan. Dalam hal hubungan ini istilah asing tepat sekali melukiskan hubungan antara anak dan orang tua.
+
+Dalam kandungan ibu dan kandungan keluarga hubungan antara anak dan orang tua secara psikologis maupun sosial adalah 'athankelijkheid'. Setelah keluar atau lahir dari kalangan keluarga orang tua hubungan berubah menjadi 'aanhankelijkheid'
+
+Perubahan dari athankelijkheid menjadi aanhankelijkheid dapat dilaksanakan secara sempurna, bilamana orang tua menyadari hal itu, dan ikut membantu supaya para anak dapat melepaskan diri dari ikatan. Ikatan harus dapat berubah menjadi hubungan **kesetiaan** atau **kebaktian**. Ikatan itu perlu dan baik untuk anak-anak yang masih membutuhkan tuntunan, tetapi ikatan bagi para orang dewasa adalah kekuatan yang menghebat. Kesetiaan berarti bahwa si anak yang menjadi dewasa telah mampu untuk berdiri sendiri lepas dari orang tua. Ini berarti bahwa orang tua yang menjalankan tugasnya dengan baik, harus berusaha supaya ia tepat pada waktunya tidak dibutuhkan lagi oleh anak-anaknya. Anak-anaknya telah dididik sedemikian rupa sehingga tepat pada waktunya mereka dapat berdiri sendiri.
+
 ## 150. Tugas sebagai pemimpin dan pembimbing
+
+Bila kita mengingat keadaan pada waktu bayi masih di dalam kandungan ibu, dan terikat sama sekali pada sang ibu, ibu berusaha dengan memelihara, membimbing dan mempersiapkan anak tepat pada waktunya dilahirkan. Dilahirkan berarti bahwa si anak memasuki taraf kehidupan di mana ibunya tidak mutlak dibutuhkan. Sebab si anak juga dapat dipelihara dan dibesarkan oleh orang lain dengan makanan bikinan. Kita harus melihat keadaan ibu sebagai pemimpin yang pada suatu waktu tidak dibutuhkan lagi oleh yang dipimpin.
+
+Pada dasarnya inilah yang terkandung di dalam semua tugas dari siapa saja yang mengaku dirinya sebagai **pemimpin atau pembimbing**. Bila seorang pemimpin atau pembimbing atau pendidik berusaha supaya yang dipimpin selama hidup membutuhkannya, berarti bahwa pemimpin itu gagal di dalam tugas pokoknya, ialah: mendidik supaya yang dididik pada suatu saat dapat berdiri sendiri dan mempunyai potensi untuk menjadi pemimpin sendiri dan menggantikan yang memimpin semula.
+
+Bilamana ada orang tua mendidik anak, sehingga anak itu tetap tergantung (secara materil atau kejiwaan) pada orang tua, maka orang tua itu tidak menjalankan darma baktinya sebagai orang tua yang sebaik-baiknya. Apabila seorang kepala jawatan atau departemen, atau perusahaan atau hal yang lebih besar lagi, bertindak sedemikian rupa, sehingga ia abadi menjadi kepala dan tidak ada gantinya, ia kurang benar menjalankan darma baktinya sebagai pemimpin.
+
+Apabila seorang profesor membiarkan para assistennya tetap lebih rendah pengetahuannya daripada dirinya sendiri dan tidak berusaha untuk menyampaikan semua pengalamannya kepada pembantu-pembantunya, maka profesor itu bukan pemimpin yang sewajarnya.
 
 ## 151. Pemimpin yang sejati
 
+**Pemimpin yang sejati** menjalankan darma baktinya dengan
+penuh kesadaran, bahwa ia pada suatu waktu tidak dibutuhkan
+lagi, malahan ia harus dengan sadar berusaha supaya ia dapat
+diganti oleh yang dididiknya. Kedaulatan sebagai pemimpin
+pada suatu saat harus diserahkan kepada penggantinya dan
+penyerahan kedaulatan ini harus merupakan titik terakhir dari
+usahanya sendiri.
+
+Ini suatu latihan bahwa tiap manusia harus menyerahkan
+kedaulatan Akunya kepada Tripurusa. Baru bila ia dapat menyerahkan Akunya kepada Tripurusa sebagai basil usahanya
+sendiri, ia benar-benar menjadi pemimpin sejati, karena penyerahan kedaulatan Akunya itu merupakan pintu gerbang bagi
+tingkatan budiluhur dan bertunggalnya dengan Suksma Sejati,
+Penuntun, dan Guru kita yang Sejati.
+
+Manusia yang untuk selama-lamanya bertunggal dengan
+Suksma Sejati itulah baru benar-benar menjadi Pemimpin dan
+Guru Sejati bagi seluruh umat manusia. Suksma Sejati menuntun dan memimpin para siswa supaya mereka bertunggal dengan
+Sang Guru Sejati sendiri dan dengan demikian mencapai tingkatan
+Pemimpin dan Guru Sejati bagi seluruh umat manusia. Barang
+siapa ingin menjadi pemimpin di dalam masyarakat, perlu mendekat kepada Suksma Sejati, agar menerima pepadang dan
+kebijaksanaan yang sangat dibutuhkan di dalam tugas sehari-hari.
+
 ## 152. Hidup di tengah-tengah masyarakat
+
+Setelah manusia membentuk keluarga baru, sebagai kepala keluarga atau ibu keluarga ia mulai belajar memberi, bertanggung jawab, aktif, sadar akan kehidupan sosial di dalam masyarakat.
+
+Dulu sebagai anak ia menerima apa-apa dari orang tua. Sekarang ia sebagai orang tua ia memberi segala sesuatu yang dibutuhkan oleh anak-anaknya. Sebagai anak ia tidak mempunyai tanggung jawab; sekarang tanggung jawab sepenuhnya terletak di pundaknya. Pada waktu masih kecil ia pasif secara sosial, dan tidak sadar akan kehidupan sosial. Mau tidak mau sekarang ia harus aktif dan menyadari, bahwa ia **hidup di tengah-tengah masyarakat**.
 
 ## 153. Minta petunjuk-petunjuk dari Suksma Sejati
 
+Bilamana manusia baru saja melepaskan diri dari kandungan keluarga dan terjun ke dalam kehidupan masyarakat, ia mulai dengan jabatan yang paling rendah di dalam golongannya. Di dalam jabatan ini ia mulai sebagai pihak penerima dan tidak bertanggung jawab.
+
+Lambat laun ia naik pangkat dan beralih dari pihak penerima kepada pihak pemberi, dan tanggung jawabnya makin lama makin tambah banyak. Dengan meningkatnya umur ia lama kelamaan menjadi yang paling tua di sekitarnya, dan menjadi. orang tua yang dimintai nasihat dan pendapat oleh umum. Ia tidak dapat lagi meminta petunjuk-petunjuk dari orang lain, karena ia sekarang orang yang paling tua dan paling berpengalaman di sekitarnya. Ia hanya dapat **minta petunjuk dari Suksma Sejati** yang ada pada diri sendiri.
+
+Petunjuk-petunjuk ini tidak lagi datang dari manusia, melainkan dari Sumber Hidup sendiri yang digalinya dari dalam hati sanubarinya yang suci.
+
 ## 154. Menemukan Tripurusa dalam hati sanubari sendiri
 
-## 155. Pembebasan atau Pamudaran
+Sekarang ia mempunyai tujuan baru, cita-cita baru, yakni: terjun ke dalam Alam Tripurusa, bertunggal dengan Suksma Sejati. Setelah ia menjadi orang yang lanjut usianya, ia dipensiun, dan ke luar dari aktivitas dan kesibukan kehidupan sosial. Sekalipun ia masih hidup di tengah-tengah masyarakat, tetapi ia seolah-olah tidak mempunyai pembagian tugas lagi di dalam masyarakat manusia. Sekarang ia berhadapan dengan semesta raya dengan persoalan hidup matinya.
 
-## 156. Masuk ke dalam Alam Sejati
+Ia ingin memecahkan dan keluar dari persoalan itu. Ke mana ia lari, ke mana ia dilahirkan lagi, ke luar dari kandungan semesta raya? Semesta raya tidak ada batasnya, ke atas, ke bawah, ke kiri, ke kanan, ke muka, ke belakang, ukuran ruang dan waktu tiada habis-habisnya.
+
+Dengan **menemukan Tripurusa di dalam hati** sanubarinya sendiri dan kemungkinannya ia bertunggal dengan Suksma Sejati, ia melihat lubang untuk ke luar dari kandungan semesta raya.
+
+## 155. Pembebasan atau pamudaran
+
+Tetapi ke luamya kali ini tidak berarti pindah tempat atau pindah waktu, melainkan meresap dan menyusup di dalam ruang dan waktu. Sebenarnya kandungan semesta raya dapat diartian sebagai kandungan di dalam kekuatan unsur-unsur berarti pula pembebasan diri dari kekuatan unsur-unsur. Tetapi tidak hanya semesta raya saja yang terdiri dari unsur-unsur. Badan jasmani sendiri, baik yang kasar maupun yang halus, tersusun oleh unsur-unsur. Sekarang ia mengerti, bahwa ia harus membebaskan diri dari semua kekuatan yang ada pada badan jasmaninya sendiri.
+
+Persoalan disederhanakan lagi. Keluar dari kandungan kekuatan badan jasmani kasar dan halus berarti kelahiran di dalam alam yang tidak berunsur, Alam Sejati atau Alam Tripurusa. Ini merupakan kelahiran yang terakhir, karena ia kern..: bali ke Alam Sejati, asal mulanya jiwanya yang sejati. Ini sebenarnya pembebasan yang sesungguhnya. Kelahiran ke luar dari kekuatan unsur-unsur masuk ke dalam Alam Sejati berarti pula kehidupan baru dan Hidup yang Sejati. Semua proses sebelumnya ini hanya merupakan proses pendahuluan sebagai persiapan guna melaksanakan kejadian terakhir:**pembebasan atau pamudaran** dari genggaman unsur-unsur.
+
+## 156. Masuk ke Alam Sejati
+
+Jadi, kelahiran dari kandungan ibu masuk ke kandungan keluarga; kelahiran dari kandungan keluarga masuk ke dalam kandungan masyarakat, adalah proses pendahuluan yang dapat dianggap sebagai pelajaran bagi manusia guna persiapan kelahiran yang sesungguhnya dan kelahiran agung **masuk ke dalam Alam Sejati**.
+
+Untuk itu manusia harus mengenal kekuatan dan sifat-sifat unsur supaya ia dapat mengatasinya. Ia harus mengetahui talitali yang mengikat dia dengan semesta raya dan masyarakat manusia. Semua itu perlu untuk mengatur siasat, supaya ia makin lama makin mendekati pintu gerbang Alam Sejati. Ia perlu pula memahami kekuatan-kekuatan yang menyusun jiwa manusia dan harus dapat mengetahui sifat-sifat dari Hidup Sejati yang bertakhta di dalam Alam Sejati.
+
+Maka mulailah manusia mempelajari semua ini. Dengan sen dirinya ia berkenalan dengan Tripurusa, dengan Tri Sila, Panca Sila, keadaan seluk beluk semesta raya, dengan aturan dan tatacara hidup lain, baik yang berakhir dengan kelahiran ke dalam Alam Sejati, maupun yang menuju ke kesesatan jalan. Ia bersentuh pada panembah, tapa brata, · budiluhur. Mau tidak mau ia harus berkenalan dengari. Sasangka Jati, Pepadang dan Penuntun Yang Sejati.
+
+Dan mulailah ia membaca Arsip Sarjana Budi Santosa
 
 ## footnote
