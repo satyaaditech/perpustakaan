@@ -1065,7 +1065,7 @@ Pendidikan dengan menyediakan iklim dan pemberian contoh masuk ke dalam jiwa man
 
 Bila contoh berlawanan dengan pendidikan secara lisan, maka hasilnya akan sia-sia belaka. Untuk mencapai hasil yang sebaik-baiknya perlu iklim, contoh-contoh, dan kata-kata yang disusun dengan selaras. lklim ini sebenarnya cara pendidikan yang dilaksanakan oleh sang ibu terhadap anaknya di dalam kandungan. Pada saat itu sikap ibu terhadap si anak yang dikandung dapat dilukiskan dengan satu kata : budi luhur.
 
-## 136. Sumber ik1im rumah tangga ialah rasa kasih sayang
+## 136. Sumber iklim rumah tangga ialah rasa kasih sayang
 
 Pendidik yang pandai dan dapat berbicara lancar, akan tetapi yang melupakan faktor iklim dan contoh, adalah seperti orang yang akan menaikkan layang-layang tanpa mempunyai benang. Di dalam rumah tangga, di mana si jabang bayi terbimbing dan disiapkan untuk tugas suci di dalam masyarakat, sang ibu merupakan sendi yang utama yang bertanggung jawab atas iklim keluarga.
 
