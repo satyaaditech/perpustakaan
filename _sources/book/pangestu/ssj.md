@@ -1,5 +1,6 @@
-# SASANGKA JATI
+![sasangkajati](coverbk/sasangkajati.png)
 
+# SASANGKA JATI
 ## BEBUKA
 
 <br/><audio controls><source src="audio\01%20Hasta%20Sila.mp3" type="audio/mpeg"></audio><br/>
