@@ -18,13 +18,13 @@ Menurut perkiraan tidak ada satu menit berselang terdengarlah sambungan Sabda, b
 
 Sabda yang ke-dua:
 
-> “**AKU** Suksma Sejati, yang menghidupi Alam semesta, bertakhta di semua sifat Hidup.<br/>
-> AKU Utusan Tuhan yang Sejati, yang menjadi Pemimpin, Penuntun, dan  Guru-mu yang Sejati, yalah Guru semesta Alam.<br/>
-> AKU datang melimpahkan Sih Anugerah Tuhan kepadamu berupa: PEPADANG DAN TUNTUNAN: terimalah dengan menengadah keatas, menengadah yang  berarti tunduk, sujud dihadapan-KU.”<br/>
+> “*AKU Suksma Sejati, yang menghidupi Alam semesta, bertakhta di semua sifat Hidup.*<br/>
+> *AKU Utusan Tuhan yang Sejati, yang menjadi Pemimpin, Penuntun, dan  Guru-mu yang Sejati, yalah Guru semesta Alam.*<br/>
+> *AKU datang melimpahkan Sih Anugerah Tuhan kepadamu berupa: PEPADANG DAN TUNTUNAN: terimalah dengan menengadah keatas, menengadah yang  berarti tunduk, sujud dihadapan-KU.*”<br/>
 
-> “Ketahuilah Siswa-KU!<br/>
-> Bahwa semua sifat Hidup itu berasal dari Suksma Kawekas, yalah Sumber hidup yang akan kembali kepada-Nya.<br/>
-> “Sejatinya Hidup itu SATU, yang Abadi keadaannya meliputi semua Alam se-isinya.” 
+> “*Ketahuilah Siswa-KU!*<br/>
+> *Bahwa semua sifat Hidup itu berasal dari Suksma Kawekas, yalah Sumber hidup yang akan kembali kepada-Nya.*<br/>
+> “*Sejatinya Hidup itu SATU, yang Abadi keadaannya meliputi semua Alam se-isinya.*” 
 
 Turunnya Sabda bagaikan lepasnya busur (anak-panah) yang tepat mengenai sasarannya. Selama Sang Guru Sejati memberikan SabdaNya yang kedua tersebut, rasa hati Siswa muda menjadi terang benderang bagaikan diliputi cahayanya Sang Bulan Purnama Raya.
 Meresapnya Pepadang menimbulkan rasa tenang, tenteram dan “bahagia” yang belum pernah dialami oleh Siswa-muda tersebut.
@@ -35,23 +35,23 @@ Bergetarnya perasaan yang demikian itu menyebabkan tumbuhnya rasa-was-was dan ra
 
 Sabda yang ke-tiga:
 
-“Mengertilah kau Siswa-KU!<br/>
-Bahwa yang memegang ukuran dan timbangan adalah AKU, karena itu engkau, <br/>
-Jangan kecil hatimu, apabila ada yang tidak percaya padamu;<br/>
-Jangan sakit hati jika ada yang mentertawakan dan meremehkan dikau;<br/>
-Jangan was-was dan cemas jika ada yang menfitnah dikau.<br/> 
+> “*Mengertilah kau Siswa-KU!*<br/>
+> *Bahwa yang memegang ukuran dan timbangan adalah AKU, karena itu engkau, *<br/>
+> *Jangan kecil hatimu, apabila ada yang tidak percaya padamu*;<br/>
+> *Jangan sakit hati jika ada yang mentertawakan dan meremehkan dikau*;<br/>
+> *Jangan was-was dan cemas jika ada yang menfitnah dikau*.<br/> 
 
-> Aku melindungi dan menuntun sampai ke Kesejahteraan pada semua umat yang berjalan di Jalan Rahayu (Sejahtera), yang bernaung dibawah > Pengadilan-KU.<br/>
-> Aku tiada akan sampai hati (negakake) kepada mereka yang mewakili > Karya-KU.<br/>
-> Pepadang, yalah perintah wejangan-Ku sebar-sebarkanlah, dan berikan kepada siapa saja, laki-laki, perempuan, tua-muda, yang membutuhkan > Pepadang-Tuntunan-Ku, tetapi ingat, sekali-kali jangan dengan paksaan dan harapan (pamrih) apapun.<br/>
-> Kewajiban yang luhur dan suci tersebut laksanakanlah dengan > keikhlasan, kesabaran dan pengorbanan.<br/>
+> *Aku melindungi dan menuntun sampai ke Kesejahteraan pada semua umat yang berjalan di Jalan Rahayu (Sejahtera), yang bernaung dibawah  Pengadilan-KU*.<br/>
+> *Aku tiada akan sampai hati (negakake) kepada mereka yang mewakili Karya-KU*<br/>
+> *Pepadang, yalah perintah wejangan-Ku sebar-sebarkanlah, dan berikan kepada siapa saja, laki-laki, perempuan, tua-muda, yang membutuhkan  Pepadang-Tuntunan-Ku, tetapi ingat, sekali-kali jangan dengan paksaan dan harapan (pamrih) apapun.*<br/>
+> *Kewajiban yang luhur dan suci tersebut laksanakanlah dengan > keikhlasan, kesabaran dan pengorbanan.*<br/>
 
 Siapapun yang suka mewakili Karya-Ku, yaitu menyebar-luaskan Pelajaran-KU, yalah Sabda Tuhan Yang Maha Esa dengan syarat-syarat yang telah KU-paparkan tadi, akan menerima Sih Anugerah Tuhan.
  
 
-> Siswa-KU!
-> Nantikanlah sementara, engkau akan KU-beri pembantu yang akan KU-tunjuk mencatat semua wejangan-KU, yaitu:<br/> 
-> 1. Hardjoprakoso dan   2. Soemodihardjo.
+> *Siswa-KU!*
+> *Nantikanlah sementara, engkau akan KU-beri pembantu yang akan KU-tunjuk mencatat semua wejangan-KU, yaitu:*<br/> 
+> 1. Hardjoprakoso dan   2. Soemodihardjo.<br/>
 > Calon siswa tersebut juga KU-suruh menyebar-nyebarkan Pepadang-Pelajaran  Tuhan yang AKU bawa (ampil).<br/>
 > Jangan sekali-kali kecil hatimu dan was-was!<br/>
 > Engkau bertiga akan memikul Karya yang Agung, dikelak kemudian hari > akan banyak yang membantu dikau. <br/>
@@ -64,6 +64,7 @@ Dengan penuh kepercayaan yang dilandasi kesabaran, Siswa-muda menanti terbabarny
 Sabda Sang Guru Sejati terbabar, (menjadi kenyataan).
 
 1.	Dengan tidak terduga-duga pada hari menghadap Jum’at Wage, tanggal 12 Sura tahun Dal 1863, atau jatuh tanggal 19/20 Mei 1932, Saudara R.T Hardjoprakoso dengan dikawal oleh Saudara R. Ng. Hardjowirogo (kini kedua-saudara itu telah mangkat) datang di pondhok Widuran, yang merupakan pertemuan perkenalan pertama kali dengan siswa-muda.
+
 2.	Pada hari menghadap Sabtu-Paing tanggal 21 Sura tahun Dal 1863, atau jatuh tanggal 27/28 Mei 1932 Saudara Trihardono Soemodihardjo datang di Pondok Widuran, bertemu dengan siswa-muda.
 Waktu malam hari itu kedua saudara tersebut menerima Wahyu Tuhan dengan perantaraan Sang Guru Sejati, selanjutnya menerima wejangan-wejangan yang diperintahkan berturut-turut sampai beberapa bulan, yang kini telah terhimpun dalam pustaka “SASANGKA DJATI”.
 Perintah tersebut dicatat oleh Siswa-muda.
