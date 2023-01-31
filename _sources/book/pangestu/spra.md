@@ -51,12 +51,12 @@ Siapapun yang suka mewakili Karya-Ku, yaitu menyebar-luaskan Pelajaran-KU, yalah
 
 > *Siswa-KU!*
 > *Nantikanlah sementara, engkau akan KU-beri pembantu yang akan KU-tunjuk mencatat semua wejangan-KU, yaitu:*<br/> 
-> 1. Hardjoprakoso dan   2. Soemodihardjo.<br/>
-> Calon siswa tersebut juga KU-suruh menyebar-nyebarkan Pepadang-Pelajaran  Tuhan yang AKU bawa (ampil).<br/>
-> Jangan sekali-kali kecil hatimu dan was-was!<br/>
-> Engkau bertiga akan memikul Karya yang Agung, dikelak kemudian hari > akan banyak yang membantu dikau. <br/>
-> Sinar Pelajaran-KU akan bersinar memenuhi jagad.<br/>
-> Sekian dulu wejangan-KU”.<br/>
+> 1. *Hardjoprakoso dan*   2. *Soemodihardjo.*<br/>
+> *Calon siswa tersebut juga KU-suruh menyebar-nyebarkan Pepadang-Pelajaran  Tuhan yang AKU bawa (ampil).*<br/>
+> *Jangan sekali-kali kecil hatimu dan was-was!*<br/>
+> *Engkau bertiga akan memikul Karya yang Agung, dikelak kemudian hari > akan banyak yang membantu dikau.* <br/>
+> *Sinar Pelajaran-KU akan bersinar memenuhi jagad.*<br/>
+> *Sekian dulu wejangan-KU”*.<br/>
 
 Hendaknya dimaklumi oleh para Siswa.
 Perintah Sabda Sang Guru Sejati yang ketiga ini membawa daya menghilangkan perasaan ragu-ragu, khawatir dan was-was, maka diterima dengan suka sukur dan gembira oleh Siswa-muda tersebut.
