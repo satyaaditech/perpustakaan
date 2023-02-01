@@ -1130,7 +1130,7 @@ Wruhanira mungguh gedhe-gedhening ganjaran, iku yen sira bisa ngrasakake kanikma
 
 Wis aja kakehan rembug. Sawise sira mangerti, pangertinira banjur buwangen aneng pracaya kang sira ugemi utawa sira rungkebi kalawan mituhu, iku saranane yen sira arep tumeka ing gegayuhaning urip kang sejati.
 
-### SERAT SANGKAN PARAN
+## SERAT SANGKAN PARAN
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/36%20Sangkan%20Paran.mp3" type="audio/mpeg"></audio><br/>
 
@@ -1146,11 +1146,11 @@ Boten bed a kados serat-serat cangkingan (kandhutan) sanes-sanesipun, makaten ug
 Menggah wigatosipun serat punika kula sukani tetenger nami Sangkan Paran ing pangangkah namung bad he ngruntutaken kaliyan suraosing piwulangipun Sang Guru Sejati, ingkang kawrat ing buku punika. Dene pitedah warni-warni peparingipun Sang Guru Sejati wau, gerbanipun kenging kula ringkes: Angger-angger sangkan paraning dumadi. Tembung "sangkan paran" makaten, saking pamanggih kula kenging dipunwerdeni: wite (dumadine, jalarane) saka sapa, parane menyang ngendi (marang sapa). Cocogipun kaliyan suraosing piwulangipun serat punika, ringkesanipun kapratelakaken wonten 5 perangan:
 
 1. Wangsuling jiwa dhateng asal kamulanipun malih (Pangeran), tuwin tumitahipun jiwa ing gesang kuwadhagan, kathah-kathahipun namung winates pitung panjalman, samanten wau bilih dereng saged sampurna, netepi kados samesthining angger-anggeripun gesang langgeng, utawi karsaning Pangeran. Terangipun bab punika kawrat ing Bab
-1. Dedalane Manawa Kawula Wus Tumekaning Janji, Tinimbalan ing Pangeran.
-1. Sababipun boten saged wangsul dhateng asal kamulanipun malih (dhateng alamipun sejati), amargi saking kalimput dening dosanipun anerak pepacuhing Pangeran, utawi nyulayani karsaning Pangeran.
-1. Katranganipun ingkang winastan ganjaran tuwin pidananing Pangeran, limrahipun samangke sinebut: ngundhuh wohing panggawe.
-1. Dhatengipun pidana (piweleh utawi wewales) tuwin icaling dosa.
-1. Dhatengipun piwales tumrap pandamel awon, ingkang dereng rinuwat sarana martobat, katetep tuwin luwaripun pandamel dosa patio Panutuping sabdanipun Sang Guru Sejati.
+2. Dedalane Manawa Kawula Wus Tumekaning Janji, Tinimbalan ing Pangeran.
+3. Sababipun boten saged wangsul dhateng asal kamulanipun malih (dhateng alamipun sejati), amargi saking kalimput dening dosanipun anerak pepacuhing Pangeran, utawi nyulayani karsaning Pangeran.
+4. Katranganipun ingkang winastan ganjaran tuwin pidananing Pangeran, limrahipun samangke sinebut: ngundhuh wohing panggawe.
+5. Dhatengipun pidana (piweleh utawi wewales) tuwin icaling dosa.
+6. Dhatengipun piwales tumrap pandamel awon, ingkang dereng rinuwat sarana martobat, katetep tuwin luwaripun pandamel dosa patio Panutuping sabdanipun Sang Guru Sejati.
 
 Wusana pamuji kula, mugi-mugi buku kandhutan angka 6 punika, sageda dados damaripun para marsudi, punapa den.e sageda ngun-tapa ken lampahipun, anggEming para marsudi nedya anglenggahi pakaryanipun senapatining ngalaga, wonten ing pabarataning dahurunipun batos, sinartan ing pamuji: jaya-jaya, sageda unggul juritipun, anggEming anggayuh dhateng katentreman langgeng utawi kasampurnaning gesang, sarana mituhu dhateng tuntunaning pitedah rahayu wolung prakawis, kados ingkang kasebut ing serat Hastha Sila, murih saged ruwat saking panangsayanipun paracidraning donya, ingkang tansah nuwuhaken bingah, susah, begja, cilaka, gesang tuwin pejah, sarta sapanunggilanipun .
 
@@ -1178,7 +1178,7 @@ Rahayu jengandika para umat, ingkang sampun sami saged ruwat saking panangsayani
 Surakarta, Januari 1933
 Soenarto
 
-#### SANGKAN PARAN
+### SANGKAN PARAN
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/37%20Sangkan%20Paran.mp3" type="audio/mpeg"></audio><br/>
 
@@ -1200,7 +1200,7 @@ Mangkono mungguh beda-bedaning pangrasa aneng tundha-tundhaning drajat, mung wae
 [^38]: Ing nalika jaman arwah
 [^39]: Ing nalika jaman arwah
 
-#### Bab 1: Oedalane Manawa Kawula Wus Tumekaning Janji, Tinimbalan ing Pangeran
+### Bab 1: Oedalane Manawa Kawula Wus Tumekaning Janji, Tinimbalan ing Pangeran
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/38%20Bab%201%20Dedalane%20Manawa%20Kawula.mp3" type="audio/mpeg"></audio><br/>
 
@@ -1245,7 +1245,7 @@ Samengko wus ana piranti ginawe nyaring kasucianira, utawa ginawe andha anggonir
 
 Muiane yen sira nedya nyatakake kasunyatane, iva lakonana endi ta kang sira pilih, nyatakake ganjaraning kautaman (netepi dhawuh, angedohi pepacuh), apa nyatakake pidana tumraping dosa, yaiku mukir marang dhawuhing Pangeran. Iku kabeh gumantung aneng karepira dhewe, mung wae sira uga kudu mangerti, manawa kabeh tindakira iku, ora bisa mrucut saka adiling Pangeran, ala becik bakal nampani piwales kang murwat kalawan panggawene.
 
-#### Bab 2 Sabab-sabab kang Anjalari Rubedaning Pati, Utawa Kalakuan kang Ora Nv1ametake Lakune, Tumekaning Dalan Sangkan Parane
+### Bab 2 Sabab-sabab kang Anjalari Rubedaning Pati, Utawa Kalakuan kang Ora Nv1ametake Lakune, Tumekaning Dalan Sangkan Parane
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/39%20Bab%202%20Sabab%20Sabab%20Kang%20Anjari%20Rubedaning%20Pati.mp3" type="audio/mpeg"></audio><br/>
 
@@ -1329,7 +1329,7 @@ Dene piweleh kang kaping pindho, ing akire bakal nampani pidananing Pangeran, ya
 
 Awit saka iku sira ora bisa ngaso, ora darbe katentreman, amarga sira mung tansah katempuh ing ombaking gagasanira kadonyan, bebasane ngalor ngidul, ngetan ngulon tanpa andheg, mung manut panempuhing alun angen-angen mau. Wuwuh-wuwuh isih ngrasakake adhem panas, nanging sira wus ora bisa setiyar golek kemul sarta pangeyuban, kang kena sira anggo nulak rasa pangrasa bungah susah utawa ad hem panas mau. Kaya mangkono kasangsaran kang tinemu ing alam kafiruna, kang dadi padunungane para kawula kang padha lali (kalimput) marang Pangerane kang sejati, utawa marang Utusane kang langgeng. Dene sapira suwene anggone dumunung aneng alam mau, iku mung manut sapira lawase anggone nuli bisa eling Ian martobat ing Pangeran utawa Ingsun (Suksma Sejati).
 
-#### 3. Aja Memangan Utawa Migunakake Pangan kang Anggampangake Rusaking Raga Ian Budi Pakerti
+### 3. Aja Memangan Utawa Migunakake Pangan kang Anggampangake Rusaking Raga Ian Budi Pakerti
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/42%20Paliwara%203%20Aja%20Memangan.mp3" type="audio/mpeg"></audio><br/>
 
@@ -1359,7 +1359,7 @@ Dene manawa ana kalifatullah tumindak kang nyulayani anggerangger wewenange utaw
 
 Manawa sira kongsi nerak pepacaking praja mau, yekti sira bakal nampani pidananing kalifatullah, kang mesthi wae kahananira nuli sangsara. Iya kasangsaranira iku kang marakake rusaking raga Ian atinira, rusaking ati gawe lali marang Pangeran, kang temahane sira ing akire kepeksa dumunung aneng alam kafiruna, yaiku ing alam kang ora bisa oleh pangayomaning Pangeran. Sanadyan anggone nerak pepacaking praja, iku ora kinawruhan dening kalifatullah utawa ora bisa kokum, kang amarga kurang sampurna pasaksene, kang kena ginawe netepake kaluputane, banjur bisa luwar saka seregan, nanging Pangeran iva anguningani kang mangkono iku, mula ing kauripane ing tembe meksa bakal nampani piweleh, kang satimbang kalawan panggawene kang dosa mau. Awit saka iku, bisane kelakon becik, golongan kang marentah Ian kang pinarentah, padha ngelingana Ian anetepana jejeging kamanungsane, kava kang wus kapratelakake ing perangan kang kaping telu kasebut ing dhuwur, supaya sakaro-karoning golongan bisa tetep Ian anglungguhi kaadilan, kang wus dadi wewenange dhewe-dhewe, Ian bisa saiyeg gumolong tunggal sedya, tumuju marang katentreman Ian karaharjaning praja dalah saisine. Iku kabeh wus kalebu prajanjiane Pangeran, kang wus padha disanggemi nalika Roh Suci arep tinurunake marang donya. Mula yen sira pracaya, iva arah-arahen bisane netepi marang sesanggeman Ian kuwajibanira lair batin, supaya sira padha antuk pangayomaning Pangeran, amarga Pangeran tansah angilekake nugrahane, marang para kawula kang padha sumungkem anetepi dhawuh, Ian angedohi pepacuh, satemah sira kabeh padha pinaringan kamulyan Ian karaharjan, apa dene bisa slamet tumekaning dalan sangkan paranira.
 
-#### 5. Aja Padha Cecongkrahan
+### 5. Aja Padha Cecongkrahan
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/44%20Paliwara%205%20Aja%20Padha%20Cecongkrahan.mp3" type="audio/mpeg"></audio><br/>
 
@@ -1387,7 +1387,7 @@ Dadi ing atase kabutuhan lair kang gandhengan kalawan pepesthenira kang becik, i
 
 Tumrape kawula kang lagi tumitah sapisan, iku mesthine durung bisa ngempakake (nandukake) gegamane pitu mau kanthi sampurna, muiane yen ana klera-klerune anggone nandukake gegamane pitu mau, iya isih entheng dosane. Amarga klera-klerune tindake, iku mung kagawa saka bod hone, utawa saka isih sarwa ringkih samubarange, kayata: kapinterane kurang, atine isih miyar-miyur, durung darbe kasantosan utawa kekencengan, isih gam pang kadayan ing liyan, utawa ela-elu, amarga saka durung akeh sesurupane utawa lelakone, mula upama ana keliruning tindake, iya isih tipis dosane, piwelehe uga durung abot sanggane, Ian tumekaning piweleh uga tumuli. Sanadyan wong mau bodho, nanging atine temen (isih lugu), durung ruwed utawa reged kaya atine wong kang wus rinegedan ing kajuliganing angen-angene, yaiku wong sugih kawruh, kang mung dianggo minteri anggone golek pamrih utawa tumindak ora bener, kayata: ginawe padudon, ngapusi wong, madoni dhawuhing Pangeran utawa ngowahi dhawuhing Pangeran, Ian sapanunggalane, kang wose wae mung dianggo nuruti hardaning kekarepan kang tumuju ora becik, mula dosane iya abot, beda karo dosane wong kang isih bodho mau (kang lagi tumitah sapisan), amarga anggone kepeksa tumindak dosa, iku saka durung mangerti utawa mung saka katut ing grubyug, ora metu saka kekencenganing karep, utawa kajuliganing angen-angene dhewe, mula pidanane iya entheng, Ian tekane pidana iya tumuli aneng kauripane samengko.
 
-##### 1. Tumrap Kauripane kang Kaping Pindho Ian Sabanjure
+#### 1. Tumrap Kauripane kang Kaping Pindho Ian Sabanjure
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/46%20Tumrap%20Kauripane%20Kang%20Kaping%20Pindho.mp3" type="audio/mpeg"></audio><br/>
 

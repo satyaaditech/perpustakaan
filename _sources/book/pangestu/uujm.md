@@ -1,5 +1,26 @@
 # ULAR-ULAR JURU MENGETI
 
+```{figure} coverbk/under-construction-snb.png
+:alt: underconstruction
+:width: 200px
+:align: center
+
+```
+
+```{admonition} This Book is Still Under Heavy Development
+:class: warning
+
+<mark>Progress: Input Data, Format & Typo Checking</mark>
+
+***Buku masih dalam tahap dalam proses penyusunan, sehingga mungkin masih banyak ditemukan typo. Mohon di maklumi ya ...***
+
+```
+
+![sasangkajati](coverbk/sasangkajati.png)
+
+<br/>
+<br/>
+
 **halaman 19-28**<br/>
 
 b. Panitikipun guru ingkang nyata, punika kedah kawawas rumiyin, punapa tiyang wau saras utawi jangkep engetanipun, punapa mangertos dhateng hukum-hukum agami tuwin wewatonipun agami ingang leres (haq), sarta punapa inggih mangertos dhateng angger-anggering praja, sanadyan namung sawatawis ing ngatasing tata-tentrem tuwin kawilujenganing gesang bebrayan. Sasampunipun makaten lajeng dipun pratitisaken malih, punapa tiyang wau anggadahi budi-pekerti ingkang mulya (sae), upaminipun kados ingkang kawrat wonten ing serat **"Hasta Sila".** Punapa piwulangipun nuntun dhateng karahayoning donya akherat, utawi minggahipun malih dhateng kasampurnaning gesang sejati, sarana anut lampah ingkang andumugekaken ing pamudharaning gesang.
@@ -192,6 +213,130 @@ Jalaran maya sampun terus silem ing dalem kaheninganipun (wangsul dhateng Kedhat
 
 Dados samangke lampah Trisila sampun sirna, amargi sampun dumugi selehipun. Sampurnanipun wau lajeng santun sipat: Wicaksana, Kuwasa. Karsa. Jalaran Trisila sampun dumugi kasampurnanipun, mila Pancasila ugi lajeng kemawon nututi sampurna.
 
+### SELEHIPUN PANCA-SlLA.
+
+**1. Sampurnaning rila.**
+
+Rila punika kuncining sadaya kasucian. Manawi rila sampun kacepeng, kasucian sanesipun kadosta: narima, temen, sabar, budiluhur, inggih lajeng gampil kacepengipun, utawi anggening tumaruntun nusul.
+
+Dene ingkang winastan sampun dumugi sejatining rila punika manawi tiyang sampun kasupen dhateng dhirinipun (pribadinipun) piyambak. Rila makaten ateges sampun tanpa kanalar-nalar malih. Mila saking thukuling rila wau angen-angen lajeng mandheg, boten mubeng utawi ebah malih. Andheging angen-angen anggampilake anggening mangun eling. Peplesing eling winantu ing rila wau anggampilake wangsuling sorot (kukuting maya) dhateng Kedhatoning Sorot malih, satemah saged nembus dumugi tuking kawicahanan langgeng. Amargi "aku" (kabodhohan) sirna dening sileming maya, mila kaelingan dhateng pribadinipun ugi sirna. Pangrasa inggih lajeng sirna, satemah adame1 timbanging raosipun. Timbanging raos nyababaken thukuling katentreman sejati, mangka bur eling terus makarti, mila Pepadhang langgeng (Kawicaksanan) inggih lajeng tumedhak (karasuk).
+
+Awit saking punika lajeng kuwasa manjing ing Kedhatoning Dzatipun Pangeran, satemah oncat saking raos pepisahan, kraos dhateng panunggaling sadaya gesang, wusana saged wudhar saking bebandaning para cidra, utawi saking panangsayaning kawontenan ingkang ewah gingsir.
+
+**2. Sampurnaning narima.**
+
+Amargi riIa sampun pantog (telas utawi sirna) sampun saget manjing ing Kedhatoning Dzatipun Suksma Sejati, mila narima ugi lajeng nututi sampurna, pantog dumugi tuking sabab ingkang tanpa karana, inggih punika wangsul dhateng kamulan ingkang tanpa wiwitan lan pungkasan, satemah pinanggih rosing rasa kang rinuruh, inggih ingkang murbawasesa papesthen (Angger-angger Kodrat) sampun kawasesa ing sipat kuwasanipun, satemah saged ngendheg ubenging cakra panggilinganipun gesang marambah-rambah. Bebasan sampun dados kalam panurat piyambak, mila inggih boten badhe ngiseni seratan malih (papesthen), ingkang namtokaken lahir lan pejah, kajawi amung nglenggahi wajibipun piyambak kanthi tentrem tuwin sepen ing pamrih, boten badhe ngirangi utawi nglangkungi punapa ingkang sampun tinamtokaken dados pandumipun.
+
+**3. Sampurnaning temen.**
+
+Amargi manah sampun kinumbah ing toya kawicaksanan mila temen inggih lajeng pantog (dumugi kasampurnanipun), wujudipun: gesangipun lajeng sarwa prasaja (temen utawi nyata  samukawisipun) tegesipun: solahbawa, muna-muni, tandang-tanduk sapanunggalanipun boten wonten ingkang lelamisan utawi cidra, nanging lahir batosi pun keplok: nyata sadaya, mila lajeng saged dados panglanturing Sabda tuwin embananing Karsa. Awit saking punika lajeng boten semang-semang malih dhateng sejatining pakaryanipun Guru Sejati utawi afngaling Pangeran ingkang kedah sinambut kanti boten angengeti malih punapa pandamel wau badhe ndadosaken kapitunanipun piyambak utawi boten, amargi sampun saged anglenggahi leres.
+
+**4. Sampurnaning sabar.**
+
+Kabekta aling-aling sampun kabikak, sesinggetan sampun sirna (maya kinukut), mila watak sabar inggih lajeng seleh dumugi kasampurnanipun. Amargi ingkang nama sejatining sabar, punika manawi sampun boten winatesan ing keliring wanci tuwin panggenan, inggih punika sampun dumunung ing kawontenan ingkang sinebut: ora jaman ora makam, inggih sirnaning raos-pangraos: rumiyin kaliyan ing tembe. Amargi sampun dados wanci tuwin panggenan piyambak, mila wontenipun namung: samengko langgeng, samengko tunggal. Amargi sampun manjing ing segantening gesang ingkang anggesangi sadaya gesang, mila lajeng saged ngedum sihipun dhateng sadaya gesang, boten kanthi ambau kapine. Dados lenggahing sih wau inggih ugi ateges lenggahing sipat adil, pepindhanipun kados dene surya ingkang nyorotaken papadhangipun dhateng saindenging keblat, sadaya waradin nampi pepadhangipun, boten wonten ingkang kelangkungan. 
+
+**5. Sampurnaning budi-luhur.**
+ 
+Menggah sampurnanipun budi-luhur punika pantogipun manawi raos-pangraosipun "aku" pepisahan, ingkang medal saking panunggalipun (kabodhohan) sampun sirna. Mila amargi sampun ngrasuk Wicaksana, Kuwasa tuwin Karsa, ingkang tegesipun ugi sampun dumunung wonten ing sanginggiling budi pangertinipun, ngrasuk pamoring Tri-Purusa, lajeng saged anindaki kurban ingkang sanyata konjuk ing Pangeran. Dede kurban ingkang ateges sesaji warni nyembeleh sato kewan utawi ngurbanaken latu padupan sapanunggilanipun, nanging kurban ingkang ateges dados Juru Panebus Dosa, inggih dosaning "aku" ingkang pakartinipun tansah ngaken-aken utawi ndhaku samukawis ingkang dipun aken, ingkang temahanipun asring damel retuning jagad sasrawungan. Tuwin dados Juru Panglipuripun para "aku" ingkang sampun sami kasayahan, lajeng ngupados panglipur, pamarem tuwin katentreman. Ugi dados Juru Slamet ingkang milujengaken donya (tiyang kathah) murih saged mentas saking kasangsaranipun utawi panandhangipun dosaning "aku", ingkang lajeng murugaken kesupen dhateng jimatipun: Kalimah Sahadat ingkang sampun cumithak utawi sinerat ing manahipun, inggih sesanggeman ageng tigang prekawis ingkang sinebut Trisila, supados saged anekseni dhateng pamoring Tri Purusa.
+
+Makaten menggah rancaganing andharanipun Pathi Hasta Sila, sampurnanipun lampah rahayu wolung prekawis wau, luluhipun dados satunggal, awujud kasariraning kasunyataan langgeng ingkang asipat: Wicaksana, Kuwasa, Karsa, Sih tuwin Adil, kados andharan ingkang sampun kasebut ing nginggil wau sadaya.
+
+Mugi-mugi Sang Guru Sejati amberkahana kita sadaya. Satuhu.
+  
+
+## X. T A M B A H A N
+
+Sarehning wonten ing buku Sasangka Jati cap-capan ingkang kaping lX (th. 1976) ugi wonten sawetawis centhangan-centhangan (noot-noot) saking Juru-mengeti ingkang sampun boten dipun pacak malih, ateges dipun wedalaken saking buku, mila kangge njangkepi cathetan saking Juru mengeti, centhangan-centhangan (noot-noot) wau dening Proyek Penerbitan dipun lebetaken wonten ing buku punika.
+
+Dene nomer kaca ingkang kasebat ing cathetan mriki punika mendhet saking buku Sasangka Jati cap-capan ingkang kaping IX (th. 1976).
+
+### 1. Dumadine sato kawan (Kaca 57): 
+
+**Kaca 58.**
+
+"Sakabehe kewan iku ora duwe kaluwihan kaya Manungsa, amarga jiwane mung saka Roh Suci bae, ora pinaringan Panuntun utawa Guru (Suksma) Sejati, nanging mung kaparingan angen-angen siji, minangka Panuntune, yaiku kang dumadi saka wayangane Roh Suci bae."	
+ 
+**Noot:**
+
+Sadaya kaelokaning Pangeran punika yen tinampi sarana kanalaran pancen inggih namung badhe angodhengaken. Uteg namung badhe komet yen dipun angge anggagas Dzating Pangeran utawi kaelokaning Pangeran, amargi Pangeran pancen boten kenging kinayangapa. Manawi tiyang angengeti dhateng panunggaling Tri Purusa (Suksma Kawekas - Suksma Sejati - Roh Suci), inggih lajeng gumun tuwuh pangudaraosipun, kados pundi dene jiwaning kewan teka namung Roh Suci kemawon punika (tanpa Panuntun - Suksma Sejati). Nanging bilih tiyang lajeng angengeti bab daya listrik punika inggih kenging namung kapendhet urubipun kemawon (padhangipun), inggih kenging namung kapendhet benteripun thok. Ugi kenging namung kapendhet daya kekiyatanipun kemawon. Punika inggih lajeng boten anggumunaken, manawi jiwaning kewan namung Roh Suci kemawon (tanpa Panuntun), amargi pepindhanipun inggih kados daya listrik wau. Namung manut dhateng beda bedaning pirantosipun ingkang kangge madhahi.
+ 
+### 2. Dumadining thethukulan (Kaca 58).
+
+**Kaca 59.**
+
+"Sarehning jiwane thethukulan iku, dumadi saka alusing anasir banyu lan lemah, mula thethukulan mau manawa mati, jiwane uga bali marang asal kamulane, iya iku marang alusing anasir banyu Ian lemah. Dene wadhage uga bali marang anasir banyu lan lemah.	
+
+**Noot:**
+
+Pasaksenipun manawi jiwaning thethukulan punika boten saking Roh Suci, kenging katitik witwitan ingkang kuwawi, bilih namung kategor, boten kajebol saoyodipun, taksih saged gesang malih, semi utawi thukul. 
+ 
+### 3. Kuwajibaning Utusan, undha usuking darajade lan kuwajibaning kawula (Kaca 77).
+
+**Kaca 78.**
+
+"Awit saka iku apa pangandikane Suksma Sejati (Nur Muhammad = Kristus) iku asale iya saka Pangandikaning Pangeran, iya Sabda Langgeng kang ngemot pirang-pirang kawicaksanan, lan dadi pituduh bener marang para kawula kang padha anduweni akal (pangreti) lan kang padha lumaku aneng pepetenging donya".
+
+**Noot:**
+
+Kasebat ing Al Qur'an: S.Yunus ayat 6, maksudipun kemawon makaten: "Sejatine kedadeyaning langit lan bumi apadene ngalihe rina marang wengi iku dadi tandha yekti tumrap bangsa (manungsa) kang anduweni akal-pikiran". 
+
+Ing nalika Kanjeng Nabi Muhammad katurunan ayat punika, panjenenganipun ngantos muwun, salajengipun ngandika: "Cilaka kang maca ayat iki, manawa ora dipikir tegese".
+
+** Kaca 78**
+
+"....mangkono mungguh pepindhane dhawuh pangandikaning Pangeran, sakawit ana Sabda kang diemban dening Suksma Sejati, nuli kadhawuhake marang para Rasul, kang dadi sesulih utawa pepatihe Sang Sabda kang ngumandhang ing telenging Urip kang wus jumeneng dadi Kalifat'l Allah aneng batine para Rasul mau kabeh,...."
+
+**Noot:**
+
+Caraning Kasuksman Jawi (Filsafat tanah Jawi): para Rasul wau sampun saged anggigah Sri Krisna, jumeneng angratoni jagading batosipun, mila inggih kuwasa dados Kalifatullah.
+
+**Kaca 79**
+
+"Dene wong-wong kang padha mlengos marang pituduh bener (pangajake para Rasul), yaiku wong-wong kang padha ora pracaya, iku kang pinasthi padha ora bisa antuk pituduh saka Pangeran Sejati, muIane iya bakal padha kapitunan, tegese ora bisa antuk warisan urip-langgeng,iya iku Kadhatoning Pangeran Sejati" 
+
+**Noot:**
+
+Ing ngriki teka wonten tetembungan Pangeran Sejati, yen makaten punapa wonten Pangeran Tiron (ingkang boten Sejati) .Wangsulanipun: "Wonten,inggih punika titah ingkang ngaken Pangeran" 
+
+### 4.Pathining Sabda langgeng ingkang sumimpen ing Kitab Suci Injil, awewaton dhawuh wejanganipun Sang Guru Sejati. (kaca 83).
+ 
+**Kaca 83**
+
+"Mangertiya para kawula, manawa Yesus iku Putraning Allah,..."
+
+**Noot:**
+
+Ngengetana dhateng sejatining Gusti Yesus, inggih punika Kristusipun (Nur Muhammad-ipun).
+
+**Kaca 86**
+
+"Manawa sira sumurup tumetesing banyu suci, sira bisa sumurup: sapa sira, sapa Ingsun, lan sapa Sang Rama "
+
+**Noot:**
+
+Sanadyan Roh sampun saged luluh ing dalem kahanan Tunggal, ing salebetipun taksih gesang ing donya, nanging Roh inggih tetep Roh (jiwa), inggih ugi sanes Pangeran ingkang Maha Agung, wangsul amung pletik soroting Pangeran ingkang sampun saged kraos satunggalipun kaliyan Gesang Agung, ingkang anglimputi tuwin rumesep ing sagung gumelar.
+
+### 5. Pathining Sabda langgeng ingkang sumimpen ing Kitab Suci AI Qur'an awewaton dhawuh wejaneanipun Sang Guru Sejati (Suksma Sejati).
+
+**Kaca 87**
+
+"...., nanging Pangeran Sejati ora ngagem busana, dene kang diagemi busana kang bisa rusak mau dudu sejatining Pangeran, nanging soroting Pangeran".
+
+**Noot:**
+
+Ngengetana kebabaripun Nur Muhammad ngawontenaken gumelaring anasir 4 prakawis, saha saperangan malih dados Gesang ingkang anggesangi sadaya titah gesang. Dados tembung Muhammad kasebut nedahaken perangan ingkang wujud anasir ingkang dados busananing angen-angen tigang prakawis: pangerti - nalar - pikir (soroting Tri Purusa).
+
+**Kaca 88.**
+
+"Sakabehing pangandikane Muhammad iku iya pangandikane Pangeran".
+
+**Noot:**
+
+Amargi Kanjeng Nabi Muhammad dados warananing Utusan Langgeng tur sampun saged anjumenengaken Nur Dzat'l Allah, inggih Sang Sabda wonten ing telenging batosipun, mila sintena ingkang boten pitados dhateng dhawuh pangandikanipun Kanjeng Nabi Muhammad, punika inggih ateges boten pitados dhateng Sejatining Rasul Allah, ugi ateges boten pitados dhateng dhawuh pangandikaning Allah.
+
+**Kaca 88.**
+
+"Pangeran iku ora warna ora rupa, ora lanang orang wadon, ora pinutrakake lan ora peputra ".
 
 **Noot:**
 
