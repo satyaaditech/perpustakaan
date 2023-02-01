@@ -159,3 +159,7 @@ Pilih manusia yang mempunyai mata untuk melihat, telinga untuk mendengar, dan ha
 Tetapi, akhirnya semua tergantung dari Sang Suksma Sejati, siapakah yang akan memetik manfaatnya dari turunnya Wahyu Sasangka Jati.
 
 Satuhu.
+
+
+
+
