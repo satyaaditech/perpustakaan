@@ -1,3 +1,5 @@
+# SASANGKA JATI
+
 ```{figure} coverbk/under-construction-snb.png
 :alt: underconstruction
 :width: 200px
@@ -5,7 +7,7 @@
 
 ```
 
-```{admonition} This Book is Still Under Construction
+```{admonition} This Book is Still Under Heavy Development
 :class: warning
 
 <mark>Progress: Input Data, Format & Typo Checking</mark>
@@ -19,7 +21,7 @@
 <br/>
 <br/>
 
-# SASANGKA JATI
+
 
 ## BEBUKA
 
