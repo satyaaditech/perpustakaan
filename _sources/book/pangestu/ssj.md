@@ -948,6 +948,9 @@ Cukup samene pituduh Ingsun bab kahanane titah kang abadan geni kang padha rerat
 
 ## SERAT DALAN RAHAYU
 
+<br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/30%20Dalan%20Rahayu.mp3" type="audio/mpeg"></audio><br/>
+
+
 Buku Kandhutan V
 
 KATRANGAN SAWATAWIS BAB TEGESIPUN
@@ -996,6 +999,8 @@ Soenarto
 
 ### DALAN RAHAYU
 
+<br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/31%20DalanRahayu%20Bab%201%20Paugeran%20Suksma%20Kawekas.mp3" type="audio/mpeg"></audio><br/>
+
 Atas asmaning Suksma Kawekas, Pangeraning sagung
 titah, Ian dununging Sesembahan kang sejati.
 
@@ -1034,6 +1039,8 @@ Iki minangka dadi kekuwatan piandeh§ para kawula, kang wus dirungkebi deming ji
 
 ### Bab 2 Panembah
 
+<br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/32%20Bab%202%20Panembah.mp3" type="audio/mpeg"></audio><br/>
+
 Wruhanira para kawula, ing sajrone sira isih tinitah urip aneng donya, iku tetep dadi kawulaning Pangeran (Suksma Kawekas). Sanadyan Pangeran Ian Ingsun (Suksma Kawekas Ian Suksma Sejati) uga wus dumunung aneng sira, nanging ing sajrone sira isih tinitah aneng donya, sira dudu Pangeran, sira dudu Ingsun, sira iku kawula. Kawula mono kudu bekti marang Pangeran, kawula kudu pracaya manawa Pangeran iku mung siji, iva amung Suksma Kawekas pribadi, kang dadi Sesembah- an kang sejati. Dene Suksma Sejati iku dadi Utusane Pangeran, kang nuntun para kawula kabeh, mula para kawula iya kudu bekti marang Utusane kang sejati, yaiku Ingsun (Suksma Sejati), kang langgeng Ian ora maujud (ora warna Ian ora rupa), nanging nunggal kalawan sira, Ian anuntun sira marang dalan bener, muiane padha mituhua marang dhawuh-dhawuhing Pangeran, kang lumantar Utusane, iya Ingsun Suksma Sejati, kang dadi Panuntun Ian Gurunira kang sejati.
 
 Sumurupa, bekti iku tetalining eling, kang disantosakake sarana panembah, Ian kang dadi tuntunaning ati, anggone nedya bali marang Pangeran, sarana martobat ing dosane, ora bakal ambaleni tumindak dosa kaya kang wus kelakon, nanging sumedya anetepi mituhu, amarga mituhu iku kang minangka teken anggone bekti marang Pangeran. Kang ingaran mituhu, yaiku netepi kabeh dhawuh, Ian angedohi kabeh pepacuh, kang didhawuhake Pangeran lumantar Utusane. Nanging yen atinira isih akeh thethukulane, kaya dene alas kang isih runggut, kebak bebondhotan, sunaring rembulan ora bisa madhangi sira, muiane babadana kang kongsi baresih, dinganti kaya dluwang resik, kang durung isi tulisan warna-warna, supaya sira bisa sumurup padhang hawa, Ian bisa ambekan sarana napas Ingsun, iya kekuwatan Ingsun kang bisa agawe sira kuwasa nampani tumetesing dhawuh pangandikaning-Sun, uga dhawuhing Pangeran kang lumantar Ingsun, kang nuduhake sira marang dalan bener, yaiku dalan kang anjog marang pangayunaning Pangeran Sejati, mula padha reresika ing sadurunge sira tumeka ing janji, supaya sira bisa nampani rawuh Ingsun ing atinira kang suci, Ian Ingsun bisa nuntun sira bali marang asal kamulanira kang luhur, iya ing alamira kang sejati, iya ing kadhatoning Pangeran. Sanadyan Ingsun uga wus nunggal kalawan sira, nanging sira durung bisa nyumurupi Ingsun, ing sadurunge thethukulan kang mawarna-warna (kang tuwuh aneng atinira Ian kang agawe patining piandelira) iku sira babadi. Satuhune Sejatinira (Roh Sucinira) iku siswaning-Sun, dudu muride siswaning-Sun, kang Ingsun agem lantaran, amedharake dhawuh pangandikaning-Sun, perlu ginawe mitulungi sira kabeh nyumurupi marang dalan bener. Awit saka iku, sajrone sira isih tinitah urip aneng donya, sira wajib manembah marang Pangeran Ian Ingsun, supaya tetep dadi pratandhaning kawula, kudu bekti marang Pangeran Ian Utusane, kang disantosakake sarana panembah[^35] minangka tetalining eling. Dene elinge mau diwadhahana ing pracaya, kang digoceki kenceng (diantebi) sarana mituhu.
@@ -1041,6 +1048,8 @@ Sumurupa, bekti iku tetalining eling, kang disantosakake sarana panembah, Ian ka
 [^35]: Katranganing Panembah tigang tataran, bad he. kawrat wonten Buku Kandhutan VII, serat Panembah, ingkang namung mligi nerangaken lampah-Iampahing panembah dalah tegesipun.
 
 ### Bab3 Budi Darma
+
+<br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/33%20Bab%203%20Budi%20Darma.mp3" type="audio/mpeg"></audio><br/>
 
 Samengko Ingsun arsa nerangake kuwajiban kang kaping telu, yaiku anindaki budi darma. Wruhanira, mungguh sahing panembah iku kudu kalawan sesuci, ora mung suci ing lair wae, nanging uga sucining batin. Dene sucining batin, iku bisa dituntuni saka angulinakake nindaki panggawe kang mulya utawa utama, yaiku sarana ambabarake sih katresnane marang sapepadhaning titah, kang wujud mitulungi liyan (kasangsaran) manut kabutuhane kang dipitulungi, Ian manut kekuwatane kang mitulungi. Iku mungguh wose kang sinedya ing atase kuwajiban kang kaping telu mau, perlu ginawe nuntuni murnining atine, supaya ora agawe butheking piandel, kang wus dirungkebi dening jiwane, kaya kang wus kasebut ing paugeran, amarga ati iku kang dianggo madhahi sakeh sesanggeman marang Pangeran. Dadi yen atine ora murni, watak temen ora bisa thukul aneng ati kang isih kamomoran ing reregeding pamrih.
 
@@ -1059,6 +1068,8 @@ Dadi kumpuling telung prakara iki, yaiku paugeran (sahadat tumrap ing agama Kris
 Dadi wewatoning agama kang baku dhewe, minangka paugeraning urip iku ringkese wae, iva mung dumunung aneng sahadat mau. Sawuse mangerti marang surasane sahadat, pangertinira mau nuli leburen ing dalem genining pracaya, kang sira urubake aneng pawoning mituhu, supaya tumindakira marang kuwajiban telung prakara mau bisa kanthi piandel kang dadi gegebenganing jiwa, anggone wus anekseni nyatane marang panunggaling urip kang sejati, temen yen ora pepisahan, dadi tumindake ora rinegedan ing pamrih, amarga karasa manawa mitulungi liyan iku iva prasasat mitulungi marang dhirine dhewe, jalaran sejatining urip iku nunggal.
 
 ### 8ab4 Ngunjara Hawa Napsu
+
+<br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/34%20Bab%204%20Ngunjara%20Hawa%20Nafsu.mp3" type="audio/mpeg"></audio><br/>
 
 Bisane kuwajiban telung prakara mau tumindak ing samesthine, kudu disaranani kalawan ngunjara hawa napsune, utawa ngeker hawa napsune kang tumuju marang panggawe ala (sasar utawa keliru). Dene napsu kang marang kabecikan, iku kang kudu diumbar. Manawa hawa napsu kang tumuju marang piala mau diumbar, wus mesthi manungsa ora bisa nindakake kuwajiban telung prakara mau ing samesthine (kanthi sampurna). Hawa napsu iku kekuwataning badanira wadhag, kang angemban dhedhawuhaning manungsanira sejati utawa jiwanira, perlu ambabarake karsane, Ian anekakake marang kang sinedya. Mula badan wadhag mau aja kongsi dipilara, nanging direksaa kang becik, sarana ngereh kekuwatane hawa napsu kanthi angen-angene, supaya manut marang pituduh bener (pituduhing Pangeran), perlu ginawe anyembadani, bisane ambabarake kuwajiban telung prakara mau kanthi sampurna.
 
@@ -1081,6 +1092,8 @@ Yen anggonira tumindak ngunjara hawa napsu mau sira tindakake ing saben dinane, 
 Oene lakune sakawit, saka ngereh watake napsu luamah, sarana angurang-ngurangi mangane, ngombene, turune, Ian sahwate, supaya angaberake kekuwataning napsu liya-liyane, kang tumuju marang piala utawa anggampangake laku anggone ngereh (mangun beciking) napsu amarah Ian supiah, kang gampang dianggo dedalan utawa woding setan, anggone lumebu marang ati, perlu arep angrusak piandel kang bener, kalawan reka daya kang gampang dikawruhi, utawa kang ora gampang kinawruhan (dirumangsani), yaiku panggodha kang luwih alus, kang ambujuk sira bisane kalorop ing jurang panasaran Ian karusakan. Mula padha ditumemen anggonira mangun beciking napsunira, supaya ing tembe sira ora padha kapitunan (sangsara).
 
 ### Bab 5 BudiLuhur
+
+<br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/35%20Bab%20Budi%20Luhur.mp3" type="audio/mpeg"></audio><br/>
 
 Manawa hawa napsunira wus bisa kalindhih dening angen-angenira, kongsi sira bisa unggul saka sarupaning karingkihaning atinira, yekti sira bisa nyampurnakake kuwajiban telung prakara liyane, yaiku kang kasebut ing bab 1 tumeka bab 3, satemah bisa gampang anggonira angunggahi drajat kang luwih dhuwur, yaiku tumeka ing tataran utawa wiwit ngancik ing tataran budi luhur, sarana masrahake angen-angenira marang Ingsun. Anane sinebut budi luhur, iku ringkese wae: wataking manungsane kang wus mawa pepadhanging Suksma Sejati Ian kang wus tinunggalan ing sipating Pangeran kang Mahaluhur, sarta wus amribadi aneng telenging urip, iva ing atinira kang suci (murni). Oene budi pakertining manungsa kang mulya iku sarupaning kalakuan becik kang ambek rahayu, kayata: welas asih marang sapepadhaning titah, rila, narima, temen, sabar, adil, Ian sapanunggalane. Iya kalakuan becik iki kang dadi tetunggangane manungsa anggone sumedya bali marang Pangeran, sarana anunggali sipat kaluhuraning Pangeran mau, supaya andarbeni sipat kang luhur, kang wus anyakup sarupaning kalakuan becik, kang tumindake wus tanpa watesan maneh, amarga wus tumeka ing kamardikaning jiwane. Tegese: jiwa wus bisa ambabarake kaluhuran-ing sipate Pangeran, amarga atine wus resik (murni) ora binuntel ing reregeding hawa napsu Ian karupakaning angen-angene tetelu maneh.
 
