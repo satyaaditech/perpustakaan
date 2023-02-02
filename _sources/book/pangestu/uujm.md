@@ -16,10 +16,132 @@
 
 ```
 
-![sasangkajati](coverbk/sasangkajati.png)
+
 
 <br/>
 <br/>
+
+**ular-ular 11-19**
+
+## Ringkesing suraos
+
+Sadaya ketrangan kasebut nginggil, bilih kapendhet sari-sarinipun (pathinipun), sampun manuksma wonten ing pengetan buku cangkingan angka satunggal, nama serat "Hasta Sila", inggih punika pengetaning wejanganipun Sang Guru Sejati (Suksma Sejati) ingkang kadhawuhaken lumantar Siswanipun peparab Raden Soenarto ing Surakarta. Caraning serat cariyos kapendhet liding dongengipun, marah prakawis punika.
+
+**Tepa-palupi.** Saweneh ngulami Islam nerangaken, bilih sadaya ingkang kamot wonten ing Al Qur'an punika suraosipun ingkang wigatos piyambak karingkes wonten ing **surat Fatihah.** Punika pepiridan saking Hadist ingkang dipun riwayataken sekabat Ubay bin Kaab saking Sekabat Abi Hurairah, dhawuhipun Kanjeng Nabi makaten suraosipun: Gusti Allah ora nurunake Kitab Tauret, Injil, Zabur lan Al Qur'an, kajaba kang surasane wus kawengku aneng ing pathining Al Qur'an, kang ngemot pitung ayat kang diwaca marambah-rambah ing sajrone salat, yaiku surat Fatihah.
+
+Jalaran surat Fatihah punika sampun ngewrat bab pamuji, panyuwunan dhateng Allah, bab kumawula, pangibadah (ngestokaken sadaya dhawuh, nebihi sadaya pepacuh), tuwin katrangan-katrangan pangebang, pangancam, saha ngewrat garis-garis ageng tumrap hukum-hukum lahir-batos ingkang kasebut ing sawetahing Al Qur'an punika.
+
+Salajengipun wonten katrangan malih saking ngulami Islam sanesipun, ingkang limrahipun para ngulami ugi sampun sami nyumerepi saha mangertos, bilih suraosipun Fatihah karingkes wonten ing lafald: "Bismillahir' rahmanir'rahim"; suraosipun lafald punika karingkes malih wonten ing huruf "Ba", ingkang anggadhahi teges Sabdaning Pangeran: "Bi kana ma kana, wa bi yakunu ma yakun; suraosipun kirang langkung: "Kalawan Ingsun dumadine kabeh kahanan kang wus gumelar, lan uga kalawan Ingsun bakal dumadine kahanan kang durung kebabar." Wallahu alam.
+
+Bilih kawawas saking Kasunyatanipun, Sabda Pangandikaning Pangeran ingkang makaten wau, lajeng nggadahi teges, bilih sadaya ingkang gumelar punika dumadosipun (wontenipun) saking kurbaning Pangeran, anggening ngurbanaken Pribadinipun sarana panguwasa kebabaripun pamoring anasir sekawan prakawis saha gesang ingkang anggesangi (Geest en stof), lajeng kebabar dados sagung ingkang gumelar punika. Katrangan ingkang makaten kalebet babagan Tauhid ingkang luhur. Mila sagedipun kita wangsul dhateng Asal-Kamulan ingkang Luhur tuwin Langgeng punika, jnggih kedah sarana kurban, tegesipun nyelak dhateng Pangeran (Allah) ingkang asipat "Sih", inggih ingkang dados Kalulutipun gesang kita para manungsa.
+
+Kita boten saged cecelakan kaliyan Allah, manawi kita boten nunggil laras (runtut) kaliyan sipat-sipating Allah. Sadaya ingkang saged tetunggilan (kempal) punika manawi nunggil laras. Makaten punika sampun dados sarat mutlak tumrap tiyang ingkang nedya nyelak dhateng Pangeran. Manawi dereng saged nunggil laras, nadyan nglampahana samadi ngantos pedhot boyokipun, inggih tanpa guna kemawon, jalaran boten wonten margi ingkang saged anggandheng piyambakipun kaliyan kawontenaning Pangeran. Kados pundi marginipun, inggih punika sampun kawrat wonten ing teges-teges suraosipun piwulanging para andika Nabi Rasul kasebut nginggil. Makaten ingkang dados sari-sari (pathi)-ning Pitedah Leres saking Allah ingkang winahyokaken dhateng para Nabi Utusanipun.
+
+
+## IV. SUCI
+
+Pamanggihipun golongan Islam ingkang ahli Tasawuf makaten :
+
+Pandamel ingkang pantes linuhuraken ing manungsa inggih punika: kasucian. Sadaya kamulyan tuwin kautaman punika gegandhengan kaliyan kasucian wau. Islam punika dhasaripun suci, mila inggih boten kenging rinegedan sakedhik kemawon; sanadyan namung sakedhap inggih boten kenging, amargi Islam punika menggahing hakekatipun boten tumrap dhateng sintena ingkang boten suci:
+
+1. **Sucining kalahiran,** pangangge tuwin tetedhan.
+2. **Sucining indriya,** inggih punika enget dhateng sadaya cecegahing syara' (sampun ngantos nerak pepacuh).
+3. **Sucining manah,** inggih punika nilar sadaya wewatakan awon, upaminipun tegelan (boten gadhah tresna utawi boten gadhah welas asih), drengki, bengis (wataking sato-galak tuwin setan), sapanungilanipun.
+
+Tiga-tiganing lampah kasucian kasebut punika sejatining martobat (taubah), ingkang ateges mengkeraken utawi nilar samukawis jejember lahir-batos, ngantos dumugi ing kasucian yektos. Manawi sampun dumugi ing kasucian sajektos, suryaning piyandel (Iman) saweg saged sumunar wonten ing manahipun, temah saged nyumerepi dhateng sejatining Islam, sarta ing salajengipun nunten katuntun dumugi ngilmuning Pangeran (Kawicaksanan).
+
+Ing salebeting tiyang gesang angayom wonten ing sangandhaping kawicaksananing Pangeran ingkang boten ewah gingsir, kita wajib sumungkem angluhuraken Panjenenganipun, tuwin anggadhahana raos lingsem bilih kita nerak angger-anggeripun, jalaran Panjenenganipun tansah miyarsa tuwin ngudaneni batos kita.
+
+Salat (sembahyang) punika boten mungguh dipun lampahi tanpa wulu (nuceni badan), samanten ugi tiyang inggih boten saged dumugi ing ngilmuning Pangeran (Kawicaksanan) tanpa sucining batos. Kados dene tiyang wulu (nenuci badan) kedah ngangge toya ingkang murni (dede toya ingkang sampun dipun angge), makaten perlunipun murnining taukhid (ingkang boten kacampuran) kangge manggihaken sucining batos. Bab sucining batos punika Kanjeng Nabi Muhammad paring pralampita wonten ing donganipun makaten: "Dhuh Pangeran, mugi anucekna manah kula saking lelamisan" (munafik).
+
+
+## V. TATARANING TAUKHID
+
+Tumrap wonten ing panyawangipun para ahli Tasawuf undha-usuking taukhid punika wonten 4 drajad:
+
+1. Anggenipun ngucapaken kalimah tayibah "La ilaha ill' Allah" (= ora ana Pangeran kang sinembah kalawan sabener-benere kajaba Allah), punika namung wonten ing lathi kemawon, boten kasaksen ing manahipun. Makaten punika nama lelamisan, boten saged mitulungi punapa-punapa tumrap benjing satanginipun saking kubur.
+
+2. Anggening ngucapaken kanthi kasaksen ing manahipun (manahipun tumut ngucapaken), kados ingkang tumindak wonten ing antawisipun tiyang limrah, utawi saya yakin malih manahipun dhateng suraosing piwulang usuluddin (sipat kalih-dasa tuwin sapanunggilanipun), kados ingkang tumindak wonten ing golonganing para ngalim. Makaten punika cethaning pangucapipun taukhid, saha saged ngluwari tiyang, medal saking wewengkoning kasaripun lampah nyakuthokaken Pangeran (grof polytheisme): nyembah kayu watu sasaminipun. Punapa dene saged ngentasaken saking naraka tuwin andumugekaken ing Swarga
+
+3. Tataran ingkang kaping 3 punika kawontenaning Pepadhang (Nur) ingkang sumorot ing dalem manah inggih kebabaripun ingkang sipat "Esa" (Tunggal), ingkang minangka panceripun sagung dumadi (Nur Muhammad = Dzat Allah), inggih ingkang nyababaken wontenipun sadaya ingkang gumelar punika.
+
+Tataran ingkang kaping 3 punika radi wonten bedanipun kaliyan keyakinanipun tiyang limrah saha para mukmin ingkang alim (intelectuele theist). Keyakinan ing tataran angka kalih punika taksih marangka jiwa, nanging tataran angka tiga punika ateges ngruwat jiwa wudhar saking bebandan ingkang ngunjara gesang (Suksma). Tiyang saged binuka netraning batosipun, nekseni piyambak kanthi karaos wonten ing telenging sanubaripun dhateng kawontenanipun pamoring Kawula-Gusti, nanging taksih karaos dhateng bedanipun Kawula lan Gusti. Inggih amargi taksih karaos beda wau, piyambakipun saweg dumunung wonten ing dalem kahanan "Loroningatunggal", nama dereng sampurna panunggalipun. Ewa dene inggih sampun gadhah raos boten nate pisah kaliyan Gusti Allah, kados ingkang kadhawuhaken wonten ing Qur'an: "Wa hua ma'akum ainama kuntum", suraosipun (tafsir): Ana ing endi bae sira, ing kono Ingsun uga bebarengan kalawan sira."
+
+4. Dene tataran ingkang kaping sekawan punika kawontenan ing dalem Nur-ing Pangeran ingkang saged ngluluhaken raosipun Siswa, luluh ing dalem kahanan Tunggal. Kraos kanthi yakin bilih gesang punika nyata namung satunggal, sanadyan katingalipun ing netra-kepala pepisahan satunggal kaliyan sanesipun, nanging kejatenipun ingkang gadhah sipat wujud (Ana) punika inggih namung satunggal, dene perangan ingkang kenging risak saha kasatmata punika malah kawastanan ngadam (tegesipun: suwung = ora ana). Makaten punika (luluh ing dalem kahanan tunggal) pepindhanipun kados dene kawontenaning laslasanipun alusing lebu (stofdeeltjes), ingkang nglayang wonten ing salebeting hawa, ugi boten kasatmata wonten ing salebetipun soroting surya. Alusing lebu wau boten katingal, boten sebab saking ical utawi sirna, punapa dene lajeng dados surya; boten makaten, nanging amargi sakit sinaring surya ingkang sakalangkung mblerengi, mila kawontenaning alusipun lebu wau lajeng boten katingal wonten ing sesawangan. Makaten ugi kawontenaning Roh (Jiwa) punika inggih dede Pangeran, ugi boten sirna kawontenanipun.
+
+lcal kaliyan boten katingal, punika kawontenan kalih ingkang beda. Manawi jengandika ngilo punika jengandika boten ningali kacanipun, amargi jengandika prasasat angluluhaken kaca wau dados satunggal wonten ing layanganipun pasuryan jengandika, punapa dene jengandika inggih boten badhe carios bilih kaca wau boten wonten utawi dados layangan (schaduw). Kosok wangsulipun ugi boten badhe carios, layangan punika dados kaca.
+
+Kados makaten punika sanepanipun tiyang ingkang nyumerepi (makrifat) kawontenaning kekiyatanipun Pangeran ingkang gumelar wonten ing nglebetipun sadaya makhluk (dumadi) boten wonten bedanipun. Drajad punika sinebut dening para ahli makrifat: "rumesep ing dalem kahanan tunggal" (opslorping in monotheisme). Tataran punika sampun saged anekseni kados pundi kapanduking raos tumrap dhawuhing Pangeran ing Qur'an: "Walahu aqrabu min hablil warid" (suraosipun: Pangeran iku luwih cedhak katimbang ototing gulu). Kados cekap samanten kemawon anggen kula damel ular-ular kanthi pangajeng-ajeng sageda nambahi padhanging penampi dhateng pitedahipun Sang Guru Sejati ingkang kasebut ing serat "Tunggal Sabda" punika.
+
+
+## VI. Wewahan katrangan bab NUR MUHAMMAD
+
+**Sekar Asmaradana**
+
+1. Kasmaran arsa ngleluri, aluran caritanira, ing sifat kabatosane, nenggih Jeng Nabi Muhammad, kang wus kawrat neng kitab, isi kawruh adi luhung, yeku Hadis namanira.
+
+2. Purwane ingkang winarni, ing Hadis kang wus jinarwan, sakabat Jabir namane, angadhep timbalanira, Jeng Nabi Rasullullah, nyuwun dhawuh kang satuhu, ing reh Paduka pan dadya.
+
+3. Pandaming jagad sakalir, raharjane kang buwana, lan minangka wawakile, teteping yayah renamba, tuwin malih sadaya, saisining Rat sawegung, kasarira ing Paduka.
+
+4. Milamba dahat kapengin, muga Paduka akarsa, paring dhawuh ing yektine, paran sangkaning dumadya, kawontenan sadaya, jroning alam maksih suwung, gennya nitahken Hyang Esa.
+
+5. Mangkono sawusnya titi, Jeng Nabi Muhammad lingnya, heh Jabir wruhanta mangke, yen sirarsa ayun wikan, gaibing Hyang Wasesa, miwah samudayanipun, asale ing mulanira.
+
+6. Titahing Hyang ingkang dhingin, iku Nuring Nabinira, saka Nuring Pangerane, yeku kang ingaranan, prabaning Nur Dzatullah, Nur Muhammad tegesipun, Cahya kang sinanti pudya.
+
+7. Mider nglangut tanpa tepi, kiter kalangan winahya, atas kodrat-iradate, Pangeran kang Maha Kwasa, duk maksih sepi-sepa, sonya ruri ngadam ma'dum, lauhil mahful durung ana.
+
+8. Kalam panurat lan malih, suwarga lawan naraka, malaekat apa dene, bumi langit lintang-lintang, srengenge rembulannya, manungsa lan pra lelembut, kabeh uga durung ana.
+
+9. Dupi wus praptaning wanci, dening Allah keparengnya, nitahake dumadine, Nur Muhammad gya pinerang, dadya patang perangan, pinasrahan wajibipun, nambut karya bebarengan.
+
+10. Perangan kapisan dadi, sinebut kalam panurat, lauhil mahful kapindhone, Ngaras Kursi katrinya, prapteng perangan ping pat, pinecah ing Karsanipun, uga dadi patang panthan.
+
+11. Papanthanira makarti, dadi langit sapanthanya, panthan kadwi ing bumine, panthan katri Swarga nraka, panthan catur binagya , tan siwah kawahyeng ngayun, patang bageyan tinata.
+
+12. Sabageyan sinung kardi, cahyaning paningalira, para uwong mukmin kabeh, kapindhone kang Nur dadya, tyasing wong mukmin uga, mring makrifat ing Hyang Agung, katelunya ngrangkep karya.
+
+13. Nur piyandelireng janmi, yeku kalimah sahadat, wus kinawruhan lafale, ya: La ilaha il'Allah, Muhammad Rasulullah, kaping pate kang amengku, daya soroting Pepadhang.
+
+14. Saisine bumi langit, srengenge lintang rembulan, apadene dinadeke, wiji mula bukanira, gumelar ngalam donya, kang kumlip kumethip iku, sajagad tanna kliwatan.
+
+15. Titi sabdanya Jeng Nabi, tumrap kebatosanira, tuwin malih kejatene, myang ing asal kamulanya, gesanging titah samya, titis wijang tanna gangsul, tetep musthikaning Jagad.
+
+16. Telenging kawruh mumpuni, dadya pandam pangauban, tetep ngayahi titahe, liruning yayah renanya, Guruning Jagad Raya, mangka tandha yektinipun, pilih janma ngestu pada.
+
+17. Anilapken tan nanggapi, lir pendah upaminira, cinandra kadya mendane, kang nilapken pangonira, sayekti manggih sasar, ing margi tan wande pangguh, minangsa ing singarodra.
+
+18. Ewuh ayaning ngaurip, yen tan wruh sangkan paranya, azali Ian abadhine, tangeh lamun bisaa, mbatang pitakonira, memeting cangkriman hidup, komet aneng panyurasa.
+
+19. Yen rasane tan den wruhi, kawruhe dadi rubeda, nora bisa nemu rose, rarasing rasa puniku, neng sirnaning pangrasa, resresing ati wus lebur, kababar Sirullahira.
+
+20. Srananipun kang prayogi, gegulang bekti lan pasrah, pracaya lawan elinge, sarira tri pinanjara, srengat tarekatira, tuwin ing hakekatipun, ugi perlu linampahan.
+
+21. Prapteng ing makrifat titi, binudi ywa kongsi lena, watak lawan bebudene, tatag tanggon lan santosa, mantep pangastutinya, nalangsa maring Hyang Agung, Dzat ingkang asifat Esa.
+
+
+
+## VII. PIWELINGIPUN SANG GURU SEJATI (SUKSMA SEJATI) DHUMATENG PARA SISWA.
+
+Minangka pepenget dhateng para siswa murih wilujenging lampah, perlu ing ngriki kapethikaken piwulangipun Sang Guru Sejati, ingkang kamanah wigatos, inggih punika sesulang dhateng para sadherek, ingkang sami kepareng nyinau piwulangipun Sang Guru Sejati (Suksma Sejati) wonten ing dalemipun sadherek R.T. Hardjoprakoso, kaleres ing dinten Kemis Paing, angrintenaken tanggal 1 wulan Ramlan, taun Dal 1863 utawi kaping 28 Desember 1932, bab lampah-lampahipun tiyang maguru, kados ing ngandhap punika.
+
+Ing sarampungipun anggening sami bawa raos, nyuraos piwulang "Hasta Sila", kadang R. Soenarto nampi dhawuhipun Sang Guru Sejati ingkang tumuju dhateng para ingkang sami lelenggahan, suraosipun makaten:
+
+Ing sarehning umumipun para sadherek ing tanah Jawi, punika sami remen gegulang saha maguru kawruh kasampurnaning gesang, ingkang limrahipun winastan ngelmu tuwa utawi ngelmu sejati, mila ing dalu wau Sang Guru Sejati paring dedongengan sawetawis bab kawontenanipun para guru ngelmu kasampurnan kasebut, ingkang kaperang dados 3 perangan, kadosta :
+
+1. **Guru wadhag,** pikajengipun: manungsa ingkang mulang muruk prakawis kawruh kasampurnan (Kasuksman = Kebatosan).
+
+2. **Guru gaib,** ingkang boten katingal, nanging saged dipun sumerepi sarana indriya alus, ugi saged angejawantah katingal wewentehan dening indriya wadhag.
+
+3. **Guru ingkang sinamar,** sampun dumunung wonten ing telenging gesangipun satunggal-tunggaling tiyang, inggih ingkang sinebut "Suksma Sejati", "Nur Muhammad" utawi "Christus".
+
+
+1. **Guru wadhag** punika wonten kalih warni: nistha lan utami, utawi ingkang nyata kaliyan ingkang boten nyata.
+
+Panitikipun ingkang nistha wau makaten:
+
+a. Manawi wonten tiyang ingkang taksih kirang seserepanipun, dereng sampurna kawruhipun, boten sumerep dhateng kasunyatanipun, sampun wani ngedegaken paguron, mulangaken kawruh kasampurnan, jalaran anggadhahi kasekten sakedhik kalih kedhik, sugih jopa-japu ingkang manjur tuwin sapanunggilanipun, punapa dene anggenipun jumeneng wiku wau namung perlu kangge ngupados panggesangan, punika guru nistha namanipun, tur kawruhipun boten sampuma, mila sayogi botcn dipun guroni.
 
 **halaman 19-28**<br/>
 

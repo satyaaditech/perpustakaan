@@ -29,7 +29,6 @@ Catatan penerbitan buku "OLAHRASA"
 1. Pertama (stensilan) th. 1964 
 2. Cetakan ke II th. 1973 
 3. Cetakan ke III th. 1977    
-		  
 
 
 # KATA PENGANTAR 
