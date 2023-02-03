@@ -568,6 +568,85 @@ Wong kang gelem lan wani niti priksa dhiri pribadi, iku pantes pinuji, lan kena 
 Sadherek Prabawa:
 "Kangmas, kula ngaturaken panuwun, dhawuhipun Kangmas kula pundhi, kula nyuwun pangestunipun Kangmas supados kula dados calon siswa ingkang sanyata bekti tuwin mituhu, salajengipun minggah drajating kasiswan kula."
 
+## XIX. LAKU LAN SARAT-SARAT KANG KUDU DILAKONI DENING PARA CALON SISWA, MINANGKAPANOTHOKING "KORI PANUNGGAL"
+
+
+Sadherek Prabawa: 
+      "Bapak, sasampunipun kula mirengaken dhawuhipun Bapak bab tundha-tundhaning drajat kasiswan, kejawi ndamel marem saha pajaring manah kula, ugi saya nambahi gumaregahing jiwa kula anggen kula kepengin badhe lumebet ing kedhatoning Sang Nata, kanthi ngestokaken dhawuh wejanganipun Sang Guru Sejati sumiwi ing ngayunaning Pangeran. Nanging Bapak, kados pundi cara pambikakipun 'korining srimenganti' kula dereng patos dhamang.
+Kejawi saking punika, rehning tataraning kasiswan punika wonten sekawan drajat, punapa lampah utawi piwulang panunggal punika ugi kapilah-pilah wonten sekawan perangan, lan kados pundi wijangipun, mugi keparenga Bapak paring dhawuh."
+
+Bapak Pangrasa:
+"Aku bungah banget dene kowe saiki wis katon kasinungan kamursidan, katitik saka pitakonmu kang pratitis iku. Sumurupa,manawa piwulang panunggal iku sejatine iya mung siji, ora kapilah-pilah utawa kaperang-perang, amarga dalan bener kang anjog ing kasunyatan jati iku iya mung siji. Mung bae rehning drajating para siswa yaiku jiwaning para marsudi kasunyatan jati iku undha usuk ora padha ing ngatasing jiwane, kayata: ana kang isih mudha, ana kang wis diwasa, ana kang ringkih, lan ana kang santosa (kuwat). Awit saka iku piwulang panunggal kapeksa kaundha-usuk utawa kaperang-perang, murih nggampangake lakune para marsudi. Dene pamerange piwulang kang adiluhung mau, kaupamakake kaya wong arep dandan (busana), panganggone sandhangan diwiwiti (dianggo) saka siji, awit ora bisa kelakon yen panganggone sandhangan, kang cacahe kurang luwih limang potong iku, rinasuk bebarengan.
+ ·
+Putraku Prabawa!
+Ing samengko gatekna dakjarwani bab laku lan sarat-sarat kang kudu dilakoni dening para calon siswa, supaya 'korining srimenganti' tumuli menga.
+
+Laku kang kapisan: Ngrasuk sejatining sahadat
+Para calon siswa padha angrasuka sejatining sahadat, yaiku pahugeraning Pangeran marang kawula, kang dadi dhedhasaring piandel kang bener, utawa bundhelaning tekad kang dirungkebi, nganti bebles rumasuk ing jiwane, dadi ora mung kaucapake ing lesan bae.
+Iya sejatining sahadat mau kang minangka 'sandhang-panganggone' para kawula anggone arep sowan ing kedhatoning Sang Nata, yaiku anggone para calon siswa arep sumiwi ing ngayunaning Pangeran.
+
+Laku kang kaping pindho: Manembah ing Allah
+Sawise sejatining sahadat rinasuk dadi 'busananing' para calon siswa, para calon siswa winajibake nindakake panembah, yaiku nindakake bektine marang Pangeran Kang Mahatunggal manut tuntunan dhawuh wejangane Sang Guru Sejati, utawa. manut tuntunaning agama suci kang rinasuk. Panembah kang ditindakake kanthi rasa tresna (bekti) marang Gusti sinartan sucining ati, iku minangka panothoking 'kori srimenganti', iya gapuraning panunggal. Kaya kang kinarsakake dening Sang Sabda:
+'Sing sapa thothok-thothok lawang, bakal Ingsun wengani'.
+Dene panothoking 'kori' kang ajeg kanthi tata lan susila anoraga, lire panembahe marang Pangeran kang temen-temen sumujud, lan aja nganti ana renggange (gothange). Kabeh wektu anggonen manembah, tegese tansah eling marang Pangeran Kang Mahatunggal.
+
+Laku kang kaping telu: Anindaki budi darma
+Kanggo nuntuni sucining ati kang dadi pikuwating panembah, lan kanggo nglatih supaya darbe rasa tresna marang sapepadhaning titah urip, padha nindakna budi darma, yaiku mbabarake sih katresnane marang sapepadhaning titah, sarana paweweh kabecikan mitulungi kanggo ngenthengake bot-repoting liyan utawa kanggo ngentas kasangsaran, manut kabutuhane kang dipitulungi. Dene tumindake budi darma kaukura kanthi kekuwatane dhewe (kang mitulungi), ora dikantheni pamrih apa bae.
+
+Laku kang kaping papat: Ngunjara hawa nafsu
+Supaya bisa nindakake laku telung prakara kang kasebut ing ndhuwur mau, padha mbudidayaa kanthi kasantosaning tekad ngunjara hawa nafsu, utawa meper ubaling nafsu, yaiku nafsu kang tumuju marang tindak kang nyulayani angger-anggering kautaman, kasusilan, lan kaadilan.
+Murih nggampangake pangrehing nafsu utawa pamepering ubaling hawa nafsu kang tumuju tindak piala, padha anindakna tapa brata ing sakuwasane kanthi ikhlas. Dene tumindake tapa brata iku sarana ngengurangi utawa matesi mangane, ngombene, turune, sahwate, kasenengane, lan pakaremane. Anggone nindakake tapa brata diangkaha aja nganti ngganggu kasarasaning badan wadhage. Dene sarat-sarat kang kudu ditetepi dening para calon siswa iku uga ana patang prakara, kaya kang dakpratelakake ing ngisor iki:
+1. Kapracayan utawa piandel (iman) kang winadhahan ing sejatining sahadat kang wus dhinedher (sumimpen) ing sajroning ati sanubari mau ing saben dinane siramana kanthi 'banyuning eling', supaya 'wijining' ka-Allahan tumuli· thukul Ian banjur urip ngrembaka, Ian kareksaa aja nganti surut utawa goncang saka pakartining nalar Ian pamikir kang kulina ngulur-ulur prakara kang memedeni, agawe sanggarunggi, was-was, Ian samar-samar.
+2. Mituhu, yaiku ngestokake dhawuhing Pangeran lumaku ing dalan kautaman.
+3. Aja nerak pepacuhing (laranganing) Pangeran.
+4. Marsudi ndarbeni watak temen, yaiku netepi janji lan kuwajiban lair batin.
+Yen laku lan sarat-sarat kasebut ing ndhuwur mau padha ditetepi kanthi temen-temen 'korining srimenganti' iya 'gapuraning panunggal' bakal kawengakake dening Sang Sabda, iya Sang Sasangka Jati. Bareng lan wenganing 'kori' calon siswa munggah drajate dadi siswa, iya siswaning Sang Guru Sejati."
+
+
+## XX. OBAH LAN PAKARTINING NAFSU PEPENGINAN DADI PAMURUNGING LAKU
+
+
+"Sadurunge aku nerangake laku Ian sarat-sarat kang kudu dilakoni dening para siswa, luwih dhisik dakjarwani manawa akeh banget godha rencana kang dadi pamurunging laku tumrap para calon siswa. Mula yen anggone kepengin lumebu ing kedhatoning Sang Nata, yaiku anggone arep nyiswa marang Sang Guru Sejati, lan sumiwi ing ngayunaning Pangeran ora dhinasaran kasantosaning tekad kanthi teken ' eling', iya bakal bali ndalan temenan. Dene kang dadi sabab utawa tuking pamurunging laku iku ora liya saka obahing nafsu pepenginan kang banjur manjalma dadi 'karep'andarbeni kang diimpi-impi, barang-barang kang gumelar ing ndonyaiki.
+Obahing nafsu pepenginan iku cinandra kaya manuk garudha kang mabur nglayang-layang ing gegana, mubeng kiter sajroning batin (angen-angen)
+Muiane ana bebasan: obahing angen-angen iku kaya dene wong lempoh ngideri jagad.
+Samangsa pepenginane mau ora kasembadan, sang 'garudha' banjur klabakan ing sajroning 'kurunganing batin', kang njalari gorehing ati lan pamikir, sinusul tuwuhing rasa bendu (muring-muring) lan katungka thukuling rasa susah gelisah, terkadhang banjur nangis karo gedrug-gedrug sikil. Yen mangkono, kahanane piandel (iman) banjur goncang (kabur). Satemah calon siswa banjur nglirwakake kuwajiban suci manembah ing Gusti. Salipure saka susah iya ana kang banjur manembah, nanging panembahe ora bisa kanthi rasa sengsem, tentrem, lan jenjem, amarga sajroning manembah batine tansah kelingan pepenginane kang durung kelakon, utawa tansah eling barang-barang kang dipengini lan kang ditresnani. Dene sabab kang njalari kaya mangkono mau wus tetela saka durung kuwasa meper utawa nelukake pakartining nafsu.
+Kahanane para calon siswa kang tiba saka anggone ngunggahi gegayuhan luhur awit saka panggodhaning nafsu pepenginan, ing carita padhalangan kagambarake utawa kasebut perang gagal, tegese durung bisa menang (unggul) anggone merangi utawa nelukake ubaling hawa nafsu. Awit saka iku, Prabawa, piwelingku marang kowe di santosa anggonmu nyirep ubaling nafsu pepenginan, sanadyan katone mengini barang utawa tindak kang becik, nanging yen obahing pepenginan mau sinurung dening hardaning nafsu, mesthi bakal tumiba ing piduwung. Mangkono uga aja pisan-pisan nglirwakake kuwajiban manembah ing Allah, sanadyan ing sajroning kahanan kepriye bae, kayata: ing sajroning bebaya, bungah utawa susah, tetepa marang kuwajiban kang luhur lan suci, yaiku mastuti ing Widi.
+Mangertia Prabawa!
+Manawa panembah iku uga dadi tali panggandheng antarane kawuia-Gusti. Para kawuia ora bakal bisa nampani ilining sih lan daya kakuwatan suci saka Pangeran Kang Mahasuci, manawa ora ana tali panggandheng kang kuwat, yaiku panembah kang katindakake dhedhasar kasantosaning piandel lan murnining ati.
+Ing liya wektu bakal dakterangake kepriye carane bisamu tumeka ing sejatining panembah."
+
+
+## XXI. ANGEN-ANGEN KANG MINANGKA "KUSIR" PANGREHING "JARAN" (NAFSU KEWANI)
+
+
+"Prabawa!
+Supaya kowe saya dhamang lan mangerti sapa kang wajib mangreh obah lan pakartining nafsu, perlu dakwenehi ular-ular sawetara kanggo mbukak pangertimu, kaya ing ngisor iki.
+Mangertia, manawa uriping manungsa iku ndarbeni badan rangkep, kasar lan alus.
+Badan kang kasar (kasatmata) iku wus kalumrah disebut badan jasmani, badan wadhag, utawa raga, kang dumadi saka alusing anasir patang prakara: swasana, geni, banyu, lan lemah.
+Dene badan kang alus (ora kasatmata) sinebut badan rohani, Roh, utawa Suksma, kang dumadi saka sorot panunggaling Tripurusa: Suksma Kawekas, Suksma Sejati, Roh Suci.
+Uriping badan jasmani lan rohani (raga lan suksma) iku tetunggalan, dayan-dinayan utawa samad-sinamadan, dene terange mangkene. Badan wadhag bisa urip (makarti utawa obah) sabab diuripi dening Roh, dene Roh bisa nguripi badan wadhag amarga ngrasuk 'busana' badan wadhag lan kinuripan dening Sejatining Urip, kang uga sinebut Suksma Sejati (Kristus utawa Nur Muhammad), yaiku sejatine kang nguripi kabeh sifat urip, kang banjur nganakake rasa urip. Dene Urip iku siji, kang nglimputi kabeh sifat ana (wujud), yaiku Suksma Kawekas, Allah Sang Rama, Allah Ta'Ala, Pangeraning sagung dumadi, iya sangkanparaning urip,kang langgeng kamulyane.
+Manungsa iku pinaringan praboting urip rong prakara kasar lan alus (lair lan batin), kang ndarbeni panguwasa utawa kakuwatan dhewe-dhewe. Dene yen kapilah-pilahake kanthi ringkes mangkene.
+Prabot kang kasar iku praboting badan jasmani, ana rong prakara:
+1. Pancadriya: pandulu, pangrungu, pangambu, pangucap, pangrasa.
+2. Nafsu patang prakara, kang wus kalumrah disebut nafsu: luamah, amarah, sufiah, mutmainah, kang dumadi saka soroting anasir patang prakara, kaya kang kasebut ing dhuwur, nglimputi saranduning badan wadhag. Dene kang disebut nafsu patang prakara iku sejatine daya kekuwatan kang ginugah dening obahing nafsu pepenginan kang bisa nuwuhake rasa dereng tumindaking pakarti, kang banjur manjalma dadi 'karep' sumedya rumagang nyukupi kabutuhane utawa pepenginane.
+Dene prabot kang alus iku praboting badan rohani (jiwa), yaiku angen-angen, kang dumadi saka wayangane Tripurusa. Pakartining angen-angen iku ana telung perangan, yen kapilah-pilahake:
+1. pikir utawa cipta,
+2. nalar,
+3. pangerti utawa akal budi.
+Iya angen-angen kang darbe sifat telung prakara kasebut kang wajib mangreh pakartining nafsu (karep). Murih cethane aku arep gawe sanepa utawa pepindhan kaya ing ngisor iki.
+Badan wadhag daksanepakake : kreta
+Nafsu patang prakara (karep) iku : jaran
+Angen-angen daksanepakake  : kusir
+Roh daksanepakake  : kang nunggang kreta
+Suksma Sejati kang nguwasani kreta, jaran, kusir, lan kang nunggang kreta. Dene Suksma Kawekas kang ndumadekake kabeh mau. Badan wadhag iku uga kena dakpindhakake 'wadhah', yaiku kang madhahi Urip. Dene Roh iku 'isine', iya kang nguripi 'wadhahing Urip' (badan wadhag). Mula manungsa iku ndarbeni sifat utawa watak ala lan becik. Kang ala iku wataking 'wadhahe' (nafsu kewanine}, kang becik iku wataking 'isine', yaiku wataking Roh Sucine. ! 
+Wataking jaran(nafsu kewani) bisa dadi becik lan mbangun turut (mituhu marang piwulang kautaman) awit saka kaprigelan tuntunane utawa pangrehing si 'kusir' (angen-angen), kosok baline yen si 'kusir'kurang  santosa lan ora prayitna (ora ngati-ati) anggone nyekeli lise; 'jaran' bakal mbedhal playune nrajang kasusilaning batin. Wataking Roh kang asli suci murnl banjur kelepetan reregeqing nafsu kewani kang diumbar, wekasan manungsa kalimputan ing pepeteng satemah tumindak kang nyulayani anggering kautaman, kasusilan, lan kaadilan."
+## XXII PANGGULAWENTHAHING BUDI PEKERTI
+
+"Sang Guru Sejati paring dhawuh wejangan bab panggulawenthahing budi pekerti, kasebut ing Pustaka Sasangka Jati, kurang luwih mangkene.
+Saperangan saka kodrating hawa nafsu iku condhong marang piala. Nanging kelakone dadi panggawe uga gumantung aneng angen-angene. Upama nafsu iku kali, angen-angen mau kang minangka banyune
+Dadi yen banyune dibendung, ora kailekake manut saperangan saka kodrating nafsu kang condhong marang piala, hawa nafsu uga ora kelakon dadi ilen-ilen utawa kalining piala. Amarga dumadining kali iku uga manut marang pamilihe ilining banyu. Pepindhane kaya dene banyu kang gumrojog saka gunung, kang iline tanpa pangangkah, yaiku mung manut marang apa kodrating panggonan kang diliwati, tegese mung manut sawasesaning hawa nafsu. Wus temtu hawa napsune iya kelakon dadi kalining piala. Nanging samangsa angen-angenira iku  iline kanthi sira angkah, supaya ora liwat ing panggonan kang ala, yaiku angen-angenira tansah sira anggo memikir marang kabecikan (panggawe utama lan kasucian),pepenginanira iya bakai manut ing sawasesaning· angen-angenira kang becik iku, lan banjur masesa hawa nafsunira dadi ilen-ilen utawa kalining utama. Amarga dumadine kali mau manut saka karep (pepenginan) kang kabiyantu dening angen-angene, dadi yen pepenginane iku diereh dening angen-angen, supaya mangun kalining kautaman, hawa nafsu uga banjur dadi dhedhasar kekuwataning kali kang mili marang 'kabecikan'. Dadi wis tetela ala-beciking bebudening manungsa iku gumantung saka pangolahing angen-angen anggone ngereh (nelukake) hawa nafsu kang watake condhong marang piala."
+
+
 
 ```{contents}
 
