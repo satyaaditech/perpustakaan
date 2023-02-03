@@ -293,63 +293,64 @@ PELANTIKAN SETELAH DIULAS
 
 Setelah beberapa bulan tidak kelihatan, pada suatu malam hari keenam orang pemuda bersama-sama datang lagi di rumah Saudara Kelana.
 
-**Saudara Sasangka** :\
+**Saudara Sasangka** :
 "Selamat malam, Kang. Apakah kami boleh mengganggu lagi?"
 
-**Saudara Kelana** :\
-"Hee, Adik-adik. Selamat malam, mari masuk! Sudah lama benar Adikadik tidak datang kemari. Kebetulan, saya sekarang sedang ada waktu terluang. Saya sampai kangen. Mengapa lama tidak kelihatan? Apakah ada ujian atau kenaikan kelas?"
+**Saudara Kelana** :
+"Hee, Adik-adik. Selamat malam, mari masuk! Sudah lama benar Adik-adik tidak datang kemari. Kebetulan, saya sekarang sedang ada waktu terluang. Saya sampai kangen. Mengapa lama tidak kelihatan? Apakah ada ujian atau kenaikan kelas?"
 
-**Saudara Sarjana sambil tersenyum** :\
+**Saudara Sarjana sambil tersenyum** :
 "Hmm. Berkat pangestu Kakang, kami semua naik kelas. Tetapi kami semua juga habis ujian dan lulus semua. Hanya ini kali bukan ujian sekolah."
 
-**Saudara Kelana** :\
+**Saudara Kelana** :
 "Lho, ujian apa, kalau bukan ujian sekolah? Apakah ujian untuk mendapatkan rebewes ? Apakah ujian dari calon mertua?"
 
-**Saudara Suteja** :\
+**Saudara Suteja** :
 "Ha, ha, ha, ha. Bukan itu. Soal belakangan itu masih lama belum menjadi persoalan kami. Kami semua habis diuji mengenai Pelajaran dari Sang Suksma Sejati dan seminggu yang lalu kami dilantik sebagai anggota baru dari Pangestu Cabang Pundimawon."
 
-**Saudara Kelana** :\
-"Oh. saya merasa ikut gembira dan mengucap syukur ke hadirat Sang Suksma Sejati bahwa Adik-adik sudi terjun ke dalam kalangan Pangestu untuk melaksanakan cita-cita mengabdi kepada Sang Suksma Sejati. Jadi selarna itu Saudara mengikuti pendidikan calon anggota di Cabang Pundimawon. Sekarang saya mengerti mengapa Saudara-saudara tidak munculmuncul di hari libur. Syukur, syukur, syukur, Saudara tidak akan menyesal."
+**Saudara Kelana** :
+"Oh. saya merasa ikut gembira dan mengucap syukur ke hadirat Sang Suksma Sejati bahwa Adik-adik sudi terjun ke dalam kalangan Pangestu untuk melaksanakan cita-cita mengabdi kepada Sang Suksma Sejati. Jadi selarna itu Saudara mengikuti pendidikan calon anggota di Cabang Pundimawon. Sekarang saya mengerti mengapa Saudara-saudara tidak muncul-muncul di hari libur. Syukur, syukur, syukur, Saudara tidak akan menyesal."
 
-**Saudara Sudibya** :\
+**Saudara Sudibya** :
 "Kang Kelana dulu dilantik di cabang mana?"
 
-**Saudara Kelana** :\
+**Saudara Kelana** :
 "Saya dulu yang melantik Pakde Narto sendiri di Cabang Dereng Wonten. Dulu cara pelantikan sederhana sekali. Saya dengar sekarang tata cara pelantikan dijalankan secara khidmat."
 
-**Saudara Wijaya** :\
-"Wah. iya ! Dan sebelum pelantikan para calon anggota diulas dulu oleh pengurus cabang. Wah. saya beberapa hari berdebar-debar. kalau-kalau tidak lulus. Anggota pengurus yang mengulas. bertindak tertib sekali dan berdiSiplin. tetapi bijaksana. Tiap anggota pengurus mengambil enam atau delapan orang calon anggota untuk diulas."
+**Saudara Wijaya** :
+"Wah,iya ! Dan sebelum **pelantikan** para calon anggota diulas dulu oleh pengurus cabang. Wah,saya beberapa hari berdebar-debar, kalau-kalau tidak lulus. Anggota pengurus yang mengulas, bertindak tertib sekali dan berdisiplin, tetapi bijaksana. Tiap anggota pengurus mengambil enam atau delapan orang calon anggota untuk diulas."
 
-**Saudara Kelana** :\
+**Saudara Kelana** :
 "Apakah yang diulas?"
-**Saudara Wijaya** :\
-"Semua garis besar Pelajaran-pelajaran dari Sang Suksma Sejati yang tercantum di dalam buku Sasangka Jati. Kami semua harus hafal Paugeran Suksma Kawekas kepada Umat-Nya. Dasa Sila. dan tentunya juga harus sekedar dapat menerangkan soal Hasta Sila,  Paliwara, perbedaan antara manusia, hewan. dan dewa-dewa. Wah. saya senang betul!"
 
-**Saudara Sujana** :\
-"Yang mengharukan ialah bahwa orang tua-tua dan buta huruf juga hafal Paugeran Suksma Kawekas kepadaUmat-Nya dan Dasa Sila dengan lancar. Malah ada orang yang jauh lebih muda ketika diulas pertama kali ia belum hafal. Terpaksa ia dikembalikan, tetapi pada ulasan ulangan ia lulus. Kalau ada calon anggota yang tidak tulus pada ulasan kedua, ia harus mengulangi pendidikan, dan tidak dilantik sebelum tulus benar. Yang tulus dari ulasan, diajukan oleh anggota pengurus yang bersangkutan untuk dilantik. Jadi anggota pengurus ikut bertanggung jawab akan nitai anggota cabangnya. Dengan demikian pada upacara pelantikan, tata upacara dapat berjalan tancar dan dirasakan khidmat."
+**Saudara Wijaya** :
+"Semua garis besar Pelajaran-pelajaran dari Sang Suksma Sejati yang tercantum di dalam buku Sasangka Jati. Kami semua harus hafal Paugeran Suksma Kawekas kepada Umat-Nya, Dasa Sila, dan tentunya juga harus sekedar dapat menerangkan soal Hasta Sila,  Paliwara, perbedaan antara manusia, hewan, dan dewa-dewa. Wah,saya senang betul!"
 
-**Saudara Kelana** :\
+**Saudara Sujana** :
+"Yang mengharukan ialah bahwa orang tua-tua dan buta huruf juga hafal Paugeran Suksma Kawekas kepada Umat-Nya dan Dasa Sila dengan lancar. Malah ada orang yang jauh lebih muda ketika diulas pertama kali ia belum hafal. Terpaksa ia dikembalikan, tetapi pada ulasan ulangan ia lulus. Kalau ada calon anggota yang tidak lulus pada ulasan kedua, ia harus mengulangi pendidikan, dan tidak dilantik sebelum lulus benar. Yang lulus dari ulasan, diajukan oleh anggota pengurus yang bersangkutan untuk dilantik. Jadi anggota pengurus ikut bertanggung jawab akan nilai anggota cabangnya. Dengan demikian pada upacara pelantikan, tata upacara dapat berjalan tancar dan dirasakan khidmat."
+
+**Saudara Kelana** :
 "Bagus sekali. Ada kemajuan pesat di dalam Pangestu. Bagaimana jalannya pelantikan anggota baru?"
 
-**Saudara Sasangka** :\
-"Setelah terbukti bahwa para calon anggota dapat mengucapkan Paugeran Suksma Kawekas kepadaUmat-Nya dan Dasa Sila dengantancar dan cukup mempunyai pengertian tentang Pelajaran dari Sang Suksma Sejati, dan setelah memenuhi syarat-syarat lainnya, yakni telah cukup delapan kali mendatangi ceramah-ceramah pendidikan, mengisi dan menandatangani formulir yang disediakan, maka mereka dilantik sebagai anggota. Dalam pelantikannya sendiri mereka tidak perlu menghafalkan lagi, melainkan salah satu di antara rombongan mereka membacakan dengan khidmat Paugeran Sang Suksma Kawekas kepada Umat-Nya dan Dasa Sila. Dengan demikian tidak akan ada kejadian bahwa salah seorang calon anggota yang disuruh mengucapkan Paugeran dan Dasa Sila menjawab, 'belum dapat'.
+**Saudara Sasangka** :
+"Setelah terbukti bahwa para calon anggota dapat mengucapkan Paugeran Suksma Kawekas kepadaUmat-Nya dan Dasa Sila dengan lancar dan cukup mempunyai pengertian tentang Pelajaran dari Sang Suksma Sejati, dan setelah memenuhi syarat-syarat lainnya, yakni telah cukup delapan kali mendatangi ceramah-ceramah pendidikan, mengisi dan menandatangani formulir yang disediakan, maka mereka dilantik sebagai anggota. Dalam pelantikannya sendiri mereka tidak perlu menghafalkan lagi, melainkan salah satu di antara rombongan mereka membacakan dengan khidmat Paugeran Sang Suksma Kawekas kepada Umat-Nya dan Dasa Sila. Dengan demikian tidak akan ada kejadian bahwa salah seorang calon anggota yang disuruh mengucapkan Paugeran dan Dasa Sila menjawab, 'belum dapat'.
  
-Titik berat perayaan dapat ditekankan pada kelancaran dan kekhidmatan upacara. Suasana tenang dan agung dicapai karena tidak ada yang berbicara sejak berangkat dari rumah. Semua tamu datang sebelum waktu yang ditetapkan, mereka menduduki tempat yang ditunjukkan oleh penerima tamu. Lebih-Iebih ketenangan para putri sangat mengharukan, dan tepat pada waktu yang ditentukan, upacara dimulai. Saya merasa puas sekali."
+Titik berat perayaan dapat ditekankan pada kelancaran dan kekhidmatan upacara. Suasana tenang dan agung dicapai karena tidak ada yang berbicara sejak berangkat dari rumah. Semua tamu datang sebelum waktu yang ditetapkan, mereka menduduki tempat yang ditunjukkan oleh penerima tamu. Lebih-lebih ketenangan para putri sangat mengharukan, dan tepat pada waktu yang ditentukan, upacara dimulai. Saya merasa puas sekali."
 
-**Saudara Kelana** :\
+**Saudara Kelana** :
 "Dengan mendengarkan saja saya ikut merasa puas."
 
-**Saudara Sarjana** :\
+**Saudara Sarjana** :
 "Kalau dulu bagaimana, Kang?"
 
-**Saudara Kelana** :\
+**Saudara Kelana** :
 "Dulu belum teratur demikian. Sekarang Saudara mempunyai pengetahuan yang lebih luas tentang Pelajaran dari Sang Guru Sejati daripada dulu pada waktu saya mulai menyiswa. Dulu organisasi yang teratur belum ada; masyarakat belum mengenal Pangestu, belum mengetahui adanya Pelajaran dari Sang Guru Sejati.
 
 Dulu yang disandari hanya Pakde Narto, Pakde Hardjoprakoso almarhum, dan Pakde Soemodihardjo almarhum saja. Sekarang sudah banyak Cabang Pangestu dan tambah banyak Siswa dari Sang Suksma Sejati yang dapat dimintai keterangan bila perlu. Apalagi buku Sasangka Jati telah banyak dicetak dan penjelasan-penjelasan diberikan di dalam majalah Dwija Wara, di dalam tulisan Pak Merto 'Bawa Raos Ing Salebeting Raos'.
 
 Adik-adikku toh telah memiliki dan membaca buku Sasangka Jati? Apakah kesan Sabda-sabda dari Sang Suksma Sejati pada Adik-adikku sekalian?"
 
-**Saudara Sasangka** :\
+**Saudara Sasangka** :
 "Aduh, Kang! Saya belum pernah membaca buku lain seperti buku Sasangka Jati. Itulah yang telah lama kucari. lsi buku Sasangka Jati itu pepadang yang setinggi-tingginya, langsung dari Tuhan Yang Mahaesa. Malahan ada bagian, yakni bagian Tunggal Sabda, yang tidak ada satu kata pun yang bukan dari Sang Suksma Sejati, karena pada waktu itu Bapak Soenarto menulisnya dengan tangannya digerakkan oleh Sang Suksma Sejati.
 
 Pantas kita menjunjung tinggi buku Sasangka Jati yang berarti menghormati dan berbakti kepada Sang Suksma Sejati. Saya tidak berani membaca buku Sasangka Jati dengan sembarangan, selalu kubacanya dengan sikap yang hormat dan susila karena kuanggap membaca buku Sasangka Jati itu sama dengan menghadap di hadapan Sang Suksma Sejati. Bila kubaca buku Sasangka Jati, hati dan pikiranku menjadi padang dan tenang, dan persoalan sehari-hari terasakan jauh dan remeh.
@@ -358,7 +359,7 @@ Ini tentu karena pepadang yang menyebabkan saya dapat melihat bahwa segala sesua
 
 5) Onpersoonlijk = tidak pribadi
 
-Jiwa menjadi tenang dan perasaan menjadi enak. Orang menjadi entengan hati, dan karena itu tidak terlibat di dalam kesulitan macam-macam. Pikiran aneh-aneh yang mengganggu, sangat berkurang, malahan lambat-laun lenyap. Tidak lagi pikiran melayang-Iayang kepada hal-hal yang telah lampau atau mendahului keadaan sekarang dengan membayang-bayangkanhal-hal yang belum terjadi.
+Jiwa menjadi tenang dan perasaan menjadi enak. Orang menjadi entengan hati, dan karena itu tidak terlibat di dalam kesulitan macam-macam. Pikiran aneh-aneh yang mengganggu, sangat berkurang, malahan lambat-laun lenyap. Tidak lagi pikiran melayang-Iayang kepada hal-hal yang telah lampau atau mendahului keadaan sekarang dengan membayang-bayangkan hal-hal yang belum terjadi.
 
 Hal-hal yang telah lalu tidak dapat diulang lagi, dan hal-hal yang akan datang masih di dalam Pangkuan Sang Suksma Sejati. Itu semua menjadi tidak perlu terpikirkan. Tidak ada lagi pikiran yang membanding-bandingkan keadaanku sendiri dengan keadaan orang lain, yang menyebabkan timbulnya perasaan rendah diri, lebih diri, merasa tidak membutuhkan orang lain, tidak kalah dengan orang lain.
 
@@ -368,7 +369,7 @@ Aduh, bila kuingat keadaan dulu, kukira dahulu perasaan membanggakan diri itu ya
 
 Tentunya saya juga mengerti bahwa ada tingkatan-tingkatan di dalam masyarakat, tetapi di dalam perasaanku manusia itu kupandang sama Karena apa? Apakah kusamaratakan? Tidak! Apakah kuambil garis besarnya saja? Tidak. Soalnya ialah bahwa manusia itu terdiri dari bermacam-macam segi, sehingga sukar untuk mengadakan perbandingan begitu saja. Misalnya, seorang dokter tentu lebih berpengalaman tentang kesehatan daripada seorang tukang kebon. Akan tetapi di dalam segi lain, misalkan di dalam kecintaan kepada keluarganya, mungkin tukang kebon tadi lebih murni dari pada dokternya. Atau dalam cocok tanam tukang kebon tadi pasti lebih dari dokter-dokter. Jadi tidak mungkin bahwa seorang absolut lebih tinggi dari lain orang.
 
-Makin mendalam perasaan manusia,makin hilang perbedaan-perbedaan: Akhirnya di dalam perasaan, manusia bertunggal dengan Sang Suksma Sejati yang hanya satu bagi seluruh umat.
+Makin mendalam perasaan manusia, makin hilang perbedaan-perbedaan: Akhirnya di dalam perasaan, manusia bertunggal dengan Sang Suksma Sejati yang hanya satu bagi seluruh umat.
 
 Semua itu menyebabkan jiwaku menjadi padang, dan saya sekarang mempunyai pedoman hidup, dan tahu apa yang harus kukerjakan dalam menghadapi bermacam-macam persoalan. Pengetahuan ini juga sangat menenteramkan.
 
@@ -376,14 +377,14 @@ Apa yang terjadi pada satu orang, juga dapat terjadi pada satu bangsa. Apabila b
 
 Tidak akan ada lagi tindakan-tindakan yang merugikan negara guna kepentingan satu golongan saja. Para pembesar negara, para pemimpin, para pejabat pemerintah akan menjalankan darma baktinya karena Cahaya dan Tuntunan dan Sang Suksma Sejati, sehingga menimbulkan kesejahteraan nusa dan bangsa.
 
-Kegelapan akan menyisih jauh dari bumi Indonesia. Negara akan aman, tenteram,adil,dan makmur. Tidak ada lagi bunuh-membunuh, gencet-menggencet, pemberontakan,dan perampokan,karena kesemuanya itu dianggap perbuatan yang melanggar Pantangan dari Sang Suksma Sejati. Tidak ada lagi perbuatan yang dursila yang ditutupi dengan kata-kata yang muluk-muluk.
+Kegelapan akan menyisih jauh dari bumi Indonesia. Negara akan aman, tenteram, adil, dan makmur. Tidak ada lagi bunuh-membunuh, gencet-menggencet, pemberontakan, dan perampokan, karena kesemuanya itu dianggap perbuatan yang melanggar Pantangan dari Sang Suksma Sejati. Tidak ada lagi perbuatan yang dursila yang ditutupi dengan kata-kata yang muluk-muluk.
 
 Semua ini dapat terjadi bila bangsaku suka menerima buku Sasangka Jati sebagai kancah pepadang yang disampaikan kepada umat manusia melalui Siswa-siswa yang terpilih: Pakde Narto, Pakde Hardjoprakoso almarhum, dan Pakde Soemodihardjo almarhum.
 
 Sayang, saya tidak mengalami hidupnya Pakde Hardjoprakoso dan Pakde Soemodihardjo, dan saya ingin sekali bertemu dengan Pakde Narto."
 
 **Saudara Kelana** :
-Setelah kudengarkan kata-kata Adik Sasangka, saya merasa bangga bertemu dengan seorang pemuda yang dapat menerima Pepadang dari Sang Suksma Sejati, dan juga dapat menghargai sepenuhnya kancah dari pepadang itu. Ya, memang sayang bahwa kini Pakde Hardjoprakoso dan Pakde Soemodihardjo telah tidak ada lagi, akan tetapi jasanya bagi umat manusia akan hidup terus. Pasti Adik-adikku sekalian pada suatu hari dapat bertemu dengan Pakde Narto, malahan beberapa orang yang belum pernah berjumpa dengan Pakde Narto secara jasmaniah, pernah mengalami suatu peristiwa seperti didatangi oleh Pakde Soenarto "di dalam batinnya pada waktu mereka menjalankan panembah. Di dalam batin mereka menyadari wajah Pakde Narto, yang kemudian ternyata persis sarna dengan kenyataan setelah mereka betul-betul berkenalan dengan Pakde Narto.
+Setelah kudengarkan kata-kata Adik Sasangka, saya merasa bangga bertemu dengan seorang pemuda yang dapat menerima Pepadang dari Sang Suksma Sejati, dan juga dapat menghargai sepenuhnya kancah dari pepadang itu. Ya, memang sayang bahwa kini Pakde Hardjoprakoso dan Pakde Soemodihardjo telah tidak ada lagi, akan tetapi jasanya bagi umat manusia akan hidup terus. Pasti Adik-adikku sekalian pada suatu hari dapat bertemu dengan Pakde Narto, malahan beberapa orang yang belum pernah berjumpa dengan Pakde Narto secara jasmaniah, pernah mengalami suatu peristiwa seperti didatangi oleh Pakde Soenarto "di dalam batinnya pada waktu mereka menjalankan panembah. Di dalam batin mereka menyadari wajah Pakde Narto, yang kemudian ternyata persis sama dengan kenyataan setelah mereka betul-betul berkenalan dengan Pakde Narto.
 
 Selama ada satu orang saja di dunia ini yang membaca buku Sasangka Jati, selama itu jasa ketiga Siswa Pelopor tersebut akan tetap dihargai. 
 Apakah **kesan Adikku Sarjana tentang buku Sasangka Jati?"**
@@ -394,10 +395,11 @@ Apakah **kesan Adikku Sarjana tentang buku Sasangka Jati?"**
 **Pertama**:
 - **Kemampuanku untuk menjalankan tugas kewajiban belajar naik.**
 - Pikiranku tidak melayang-layang lagi ke mana-mana, bila saya sedang belajar.
-- Tidak ada lagi bayangan yang aneh-aneh tanpa diundang, muncul di dalam angan-anganku. Padahal pikiran tidak dengan sengaja kukendalikan demikian. Saya hanya menjalankan petunjuk-petunjuk guna melalui jalan yang menuju ke ketenteraman abadi, ialah Singgasana Sang SuksmaSejati. Tidak kuketahui sebelumnya bahwa akibatnya antara lain akan demikian.
+- Tidak ada lagi bayangan yang aneh-aneh tanpa diundang, muncul di dalam angan-anganku. Padahal pikiran tidak dengan sengaja kukendalikan demikian. Saya hanya menjalankan petunjuk-petunjuk guna melalui jalan yang menuju ke ketenteraman abadi, ialah Singgasana Sang Suksma Sejati. Tidak kuketahui sebelumnya bahwa akibatnya antara lain akan demikian.
 
 **Kedua**:
-**Angan-angan** seolah-olah menjadi lunak dan **tunduk kepada kemauanku**. Bila saya akan menceritakan atau menulis apa-apa, kata-kata, pengertian, dan ingatan keluar dengan sendirinya di dalam keadaan yang teratur sekali pada waktu yang diperlukan. Seperti ada yang menyusun lebih dahulu dan menghidangkannya di dalam keadaan siap untuk didarmakan. Padahal dulu keadaannya berlainan sekali. Dulu, bila saya mengingat-ingat sesuatu yang sangat diperlukan, yang muncul hal-hal yang lain saja. Hasilnya mengecewakan sekali. Sekarang apa yang kuceritakan pada orang lain, baik pada ternan-ternan atau guru mudah ditangkap dan terang sekali. Mereka semua heran, tetapi sesungguhnya yang paling heran . ialah saya sendiri. Terang, keadaan yang begitu harmonisnya dalam pikiranku itu bukan hasil prestasiku sendiri, melainkan karena Sih Rahmat dari Sang Suksma Sejati. Akibatnya angka-angka di sekolah naik, belajar menjadi mudah dan senang. Selain kewajiban di sekolah, kewajiban di rumah pun beres. Maklum, saya harus membantu di rumah, karena tidak ada bujang.
+
+**Angan-angan** seolah-olah menjadi lunak dan **tunduk kepada kemauanku**. Bila saya akan menceritakan atau menulis apa-apa, kata-kata, pengertian, dan ingatan keluar dengan sendirinya di dalam keadaan yang teratur sekali pada waktu yang diperlukan. Seperti ada yang menyusun lebih dahulu dan menghidangkannya di dalam keadaan siap untuk didarmakan. Padahal dulu keadaannya berlainan sekali. Dulu, bila saya mengingat-ingat sesuatu yang sangat diperlukan, yang muncul hal-hal yang lain saja. Hasilnya mengecewakan sekali. Sekarang apa yang kuceritakan pada orang lain, baik pada teman-teman atau guru mudah ditangkap dan terang sekali. Mereka semua heran, tetapi sesungguhnya yang paling heran . ialah saya sendiri. Terang, keadaan yang begitu harmonisnya dalam pikiranku itu bukan hasil prestasiku sendiri, melainkan karena Sih Rahmat dari Sang Suksma Sejati. Akibatnya angka-angka di sekolah naik, belajar menjadi mudah dan senang. Selain kewajiban di sekolah, kewajiban di rumah pun beres. Maklum, saya harus membantu di rumah, karena tidak ada bujang.
 - Dulu kurasakan pelajaran sekolah yang paling utama, dan untuk memusatkan konsentrasi kepada pelajaran saya dulu tidak mau membantu ayah-ibu di rumah. Sekarang semua pekerjaan menjadi enteng.
 
 - Saya belum pernah merasa begitu bahagia di rumah. Ayah dan ibu tentunya lebih sayang kepadaku dan mereka ikut masuk Pangestu. Sekarang kuketahui bahwa anggapan mementingkan sekolah adalah pokrol bambu belaka untuk menghindarkan diri dari tugas di rumah tangga.
@@ -441,10 +443,10 @@ Akhirnya Tuntunan dari Sang Guru Sejati memberikan kekuatan kepada para Siswa un
 
 Maka dari itu bagiku telah ada kepastian bahwa buku Sasangka Jati inilah yang menjadi pegangan hidupku seterusnya."
 
-**Saudara Kelana** :\
+**Saudara Kelana** :
 "Bagus, bagus, saya ikut merasakan syukur ke hadirat Sang Suksma Sejati bahwa Dik Sujana sekarang mempunyai tekad hidup untuk tetap menyiswa kepada Sang Suksma Sejati. Semoga anda selalu dapat berjalan di jalan yang benar, ialah jalan kesusilaan yang menuju ke cita-citamu yang luhur. Sekarang giliran sampai pada Dik Sudibya. Bagaimana, Dik Dib?"
 
-**Saudara Sudibya** :\
+**Saudara Sudibya** :
 "Wah, bagaimana, ya? Saya mulai dengan apa yang terjadi dengan diriku sendiri dulu. Saya akan membandingkan keadaanku dulu dan sekarang. Dahulu dalam angan-anganku sering timbul pikiran-pikiran yang saya sendiri tidak menghendaki adanya pikiran-pikiran itu. Mereka timbul begitu saja, malahan saya jengkel adanya pikiran-pikiran itu. Pikiran apa misalnya? Yakni pikiran menentang adanya Tuhan Yang Mahaesa yang kemudian pikiran-pikiran itu diikuti oleh perbuatan-perbuatan berani-beranian. Pikiran saya, kalau Tuhan Yang. Mahaesa benar-benar ada, pasti saya diperingatkan atau dicegah berbuat demikian. Karena dulu saya tidak mengerti akan cara Tuhan Yang Mahaesa memperingatkan manusia, lalu kuanggap tidak ada Tuhan Yang Mahaesa.
 
 Atau ada pikiran, 'Buat apa saya belajar, kan besok lusa saya akan mati'. Tempo-tempo ada variasi seperti demikian. Saya mengirimkan surat biasa kepada ayah atau teman. Pada waktu saya memasukkan surat ke dalam bis surat, timbul pikiran, saya tidak akan menerima jawabannya, karena sebelumnya saya sudah mati.
@@ -469,71 +471,72 @@ Sekarang karena Pepadang dari Sang Suksma Sejati saya mengerti keadaan dulu. **D
  
  Sekarang Kang, saya merasa **tetap menjalankan Hasta Sila,** dan andai kata saya sementara gagal, saya tahu bagaimana bangkit lagi, dan meneruskan perjuangan. Hanya Paliwara yang nomor dua itu, lho, yang berat. Tetapi Kakang mau membantu dan memperingatkan saya, toh?
  
- **Saudara Sasangka** :\
+ **Saudara Sasangka** :
 "Belum apa-apa kok sudah minta jaminan pertolongan."
 
-**Saudara Sudibya** : \
+**Saudara Sudibya** : 
 "Habis, itu bagiku yang sulit. Terus terang saja. Tempo-tempo sini sudah diam saja, goda situ itu nekat mendesak."
 
 **Saudara Sarjana** :
+
 "Itu namanya goda. Kalau diam saja seperti patung, itu bukan goda."
 
-**Saudara Sudibya** :\
+**Saudara Sudibya** :
 "Kalau diam seperti patung, namanya apa?"
 
-**Saudara Sarjana** : \
+**Saudara Sarjana** : 
 "Ya patung !"
 
-**Saudara Sudibya** : \
+**Saudara Sudibya** :
 "Sekarang saya senang betul dengan adanya pedoman hidup ini. Ini suatu pertolongan besar yang tidak dapat diukur dengan nilai uang. Jiwaku tertolong karena Pelajaran dari Sang Suksma Sejati. Manisnya dunia ini bagiku telah pulih kembali, dan kulihat cita-citaku sekarang berada di dalam jarak yang mudah dicapai. Insya Allah buku Sasangka Jati selalu dekat padaku."
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Dik Dib, itu tadi pengalaman yang berharga sekali dan dapat Anda peroleh di dalam waktu yang singkat. Itu suatu bukti bahwa Anda dengan kesungguhan hati menyiswa pada Sang Suksma Sejati."
 
-**Saudara Wijaya** : \
+**Saudara Wijaya** :
 "Bagiku manfaat Pelajaran dari Sang Suksma Sejati tidak banyak berbeda dari pengalaman Sudibya. Tidak disangka-sangka pekerjaanku selalu baik, dan apa yang kuusahakan selalu berhasil. Hasilnya lebih dari hasil usaha teman-temanku. Padahal saya tidak bekerja mati-matian. Biasa saja!! Memang saya tidak sengaja akan mengalahkan orang lain. Bagiku menang atau kalah sama saja, asal kita sudah menjalankan kewajiban yang telah ditetapkan. Anehnya, teman-teman tidak iri padaku. Berkat Tuntunan dari Sang Suksma Sejati hatiku selalu dibersihkan dari perasaan lebih diri, perasaan kuminter, kumalungkung, dan lain-lain sebagainya.
 
 Kurasa yang menyebabkan hasil pekerjaanku sering melebihi orang lain adalah keseimbangan jiwa. Keseimbangan jiwa ini tercapai, karena pengaruh dari Tripurusa yang memancar di dalam hatiku. Maka dari itu **Paugeran Suksma Kawekas kepada Umat-Nya itulah terus-menerus kunyalakan di dalam jiwaku.** Bagiku yang kupentingkan ialah budi darma dan tapa brata. Lain-lainnya juga kukerjakan, tetapi hatiku tertarik pada budi darma dan tapa brata. Mungkin ini bagiku jalan yang pendek untuk mencapai cita-citaku.
 
 Kalau saya menolong orang lain atau menyumbangkan tenagaku untuk negara, saya tidak pernah mengenal lelah. Hatiku selalu tetap riang dan kebahagiaan jiwa inilah meringankan kelelahan badan jasmani. Saya heran sendiri melihat diriku demikian. Ini hanya terwujudkan karena Tuntunan dan Pepadang dari Sang Suksma Sejati; maka dari itu buku wasiat Sasangka Jati akan tetap kuluhurkan."
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Teruskanlah Wijaya, usahamu. Sekarang ternyata bahwa Pepadang dari Sang Suksma Sejati itu cocok bagimu. Niscaya Anda akan mencapai cita-citamu. Saya ikut mendoakan, semoga Sang Guru Sejati memberkahi cita-citamu yang luhur itu. Amin !"
 
-**Saudara Wijaya** : \
+**Saudara Wijaya** :
 "Kalau bangsaku ini suka bekerja keras, hidup sederhana, berani menahan diri di dalam soal hidup mewah dan suka menolong bangsa lain, pasti negaraku akan unggul. Bila sebagian besar telah berpegangan pada "Paugeran Suksma Kawekas kepada Umat-Nya dengan sungguh-sungguh, masyarakat menjadi aman. Tidak akan ada lagi. gangguan ketenteraman yang menghambat kemajuan. Kalau ada perang saudara, semua menderita. Tetapi yang paling menderita ialah yang menjadi kancah perselisihan.
 
 Eh, kapan bangsaku dapat menerima Pepadang dari Sang Suksma Sejati. Semoga bangsaku lekas diampuni dosa-dosanya dan disucikan seperti yang dikehendaki Sang Suksma Sejati."
 
 Air mata Wijaya mengalir dan jatuh di pangkuannya: tes, tes, tes, tes! Terpaksa ia mengeluarkan sapu tangannya.
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Dik Suteja tidak ingin menceritakan pendapatnya? Semua sudah mendapat giliran."
 
-**Saudara Suteja** : \
+**Saudara Suteja** :
 "Tidak, saya tidak suka cerita apa-apa. Sudah cukup banyak orang yang berbicara. Sebagai variasi saya diam saja."
 
-**Saudara Sudibya** : \
+**Saudara Sudibya** :
 "Wah, licik itu. Ayo, giliranmu."
 
-**Saudara Sujana** : \
+**Saudara Sujana** :
 "Ayo, Dik Teja. Kami ingin mendengar pengalamanmu."
 
-**Saudara Suteja** : \
+**Saudara Suteja** :
 "Ya deh, karena kedaulatan rakyat dan keadilan sosial, saya akan berceritera."
 
-**Saudara Sarjana** : \
+**Saudara Sarjana** :
 "Ini pertemuan olahrasa terpimpin, lho! Masing-masing menguraikan kepribadiannya sendiri-sendiri. Dan kita semua kembali kepada undang-undang pokok: "Paugeran Suksma Kawekas pada Umat-Nya."
 
-**Saudara Suteja** : \
+**Saudara Suteja** :
 "0, nah, itu! Kembali kepada Tripurusa: Tetapi saya kok sudah ngantuk."
 
-**Saudara Sasangka** : \
+**Saudara Sasangka** :
 "Ah, orang ini bikin spannend 6) saja. Mari minum minum dulu." Semua orang tertawa. Wijaya pun ikut tersenyum.
 
 6) spannend (Bid) = tegang, menarik
 
-**Saudara Suteja** : \
+**Saudara Suteja** :
 "Yang kulihat ialah negaraku yang gilang-gemilang cahayanya.
 
 Negara yang surut cahayanya disebabkan karena para penduduknya terlampau menyimpang dari jalan benar.
@@ -556,90 +559,90 @@ Tetapi saya tidak ingin melihat negaraku bertindak kejam. Impianku ialah supaya 
 
 Semua hadirin mengikuti kata-kata Suteja yang diucapkan dengan penuh semangat, dengan perhatian yang sungguh-sungguh. Mereka kesemuanya terbawa oleh jiwa yang menggelora dari Suteja. Setelah Suteja berhenti, api cita-cita yang menyala belum mau padam. Dada para pemuda seolah-olah dibusungkan oleh pepadang, kebijaksanaan, kesentosaan, keberanian, dan kebesaran yang mereka hirup dari buku wasiat Sasangka Jati. Untuk sekejap mata alam menjadi terang. Setelah itu semua kembali lagi kepada suasana biasa semula.
 
-**Saudara Sasangka** : \
+**Saudara Sasangka** :
 "Kami semua telah mengeluarkan isi hati kami. Sekarang kami ingin mendengarkan cerita dari Kang Kelana." Semua setuju dan mendesak Kelana.
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Baiklah, tetapi ini cerita panjang. Bagiku, buku Sasangka Jati itu banyak sekali manfaatnya, bahkan tidak ada habisnya faedah buku itu bagiku. Terjadinya buku itu ialah karena tetesan sabda suci yang diterima oleh kancah yang suci, yang kemudian, sabda, ialah pepadang itu, disampaikan dan dicatat oleh para Siswa yang terpilih itu. Maka dari itu, bila saya membaca buku Sasangka Jati, saya masuk ke dalam suasana seperti dulu pada waktu pepadang tadi disabdakan. kepada para Siswa yang terpilih itu. Seolaholah saya lalu berhadapan dengan kancah suci yang menjadi perantara Sabda suci, yang karena itu jiwaku disucikan sedikit demi sedikit. Jiwaku bemiat menerima, mendengarkan, dan memakai sabda suci sebagai pedoman dan perlengkapan bagiku dalam perjalanan hidup sampai di Pangkuan Sang Suksma Sejati. Hatiku kubuka lebar, perhatian kutujukan bulat-bulat kepada isi sabda suci, dan persoalan hidup kubuang jauh-jauh. Sebenarnya kesemuanya itu terjadi dengan sendirinya, bila kita sungguh-sungguh mau menghadap Sang Suksma Sejati selama membaca buku Sasangka Jati. Seperti ada daya kekuatan yang menawan jiwaku dan memasukinya dengan apaapa yang kuperlukan.
 
 Adik-adikku masih ingat, kalau berdiri di bawah air terjun? Begitulah, dengan diam saja air sudah meliputi kita dan membersihkan kita. Kita menikmati keadaan demikian.
 
 Ketika saya kira-kira 27 tahun yang lalu membaca buku Hasta Sila untuk pertama kalinya, jiwaku seakan-akan mengalami suatu openbaring, jiwaku terbuka dan menggelora; karena itulah tuntunan yang sangat kubutuhkan dan telah sementara lama kucari."
 
-**Saudara Sarjana** :  \
+**Saudara Sarjana** : .
 "Dan bagian lain-Iainnya dari buku Sasangka Jati bagaimana, Kang?"
 
-**Saudara KeIana** : \
+**Saudara KeIana** :
 "0, dulu belum ada buku Sasangka Jati. Dulu adanya tujuh buah buku kandutan, yang di dalam tahun 1950 diikat menjadi sebuah buku. Ikatan ketujuh buah buku ini kemudian diberi nama Sasangka Jati.
 
-**Saudara Sujana** : \
+**Saudara Sujana** :
 "Mengapa dipilih nama Sasangka Jati ?
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Soal ini entah pernah kuceritakan, entah belum. Tetapi juga ada riwayatnya sendiri."
 
-**Saudara Sudibya** : \
+**Saudara Sudibya** :
 "Belum, belum! Terang, kepada kami belum pernah diceritakan. Bagaimana duduk perkaranya?"
 
-**Saudara Kelana :** \
+**Saudara Kelana :
 "Istilah **Sasangka Jati** untuk **pertama kali** dipakai oleh Pakde Narto di dalam **tahun 1950** diJalan Nias 4 Bandung di dalam cerita tentang pertemuan antara Pakde Narto dengan kakaknya, Kapten Sasangka Jati. **Dongeng tentang pertemuan antara Pakde Narto** dengan kakaknya sekandung Kapten Sasangka Jati, itu sebenarnya lukisan tentang panembah. Pertemuan antard Pakde Narto dengan Kapten Sasangka Jati adalah panunggalnya Roh Suci dari Pakde Narto dengan Sang Suksma Sejati. Sasangka Jati berarti Pepadang yang Sejati. Nama Soenarto ringkasan dari Sunar Nyata yang berarti pula 'pepadang yang Sejati'. Jadi Pakde Narto dan Kapten Sasangka Jati sebenarnya adalah 'setali tiga uang' alias satu orang saja. Pertemuan di dalam cerita itu mengisahkan olahrasa antara Pakde Narto dengan Sang Suksma Sejati.
 
-**Saudara Wijaya** : \
+**Saudara Wijaya** :
 "Untuk apa kok pakai pangkat kapten?"
 
-**Saudara Sudibya** : \
+**Saudara Sudibya** : .
 "Pakde Narto dulu kan berpangkat kapten TNI efektif."
 
 **Saudara Wijaya** :
 "Saya tidak tahu, sih. Saya cuma tanya saja. Sekarang saya tanya lagi, mengapa buku suci Pangestu kemudian diberi nama Sasangka Jati?"
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Itu kan sudah semestinya. Buku Sasangka Jati itu kancah dari pepadang yang diterima oleh Pakde Narto. Sabda-sabda dari Sang Suksma Sejati yang terhimpun di dalam buku Sasangka Jati melalui Pakde Narto semua itu sesungguhnya adalah jiwanya Pakde Narto sendiri, atau halusnya Pakde Narto. Semua sabda yang diterima seseorang adalah bagian dalam yang suci dari jiwa orang yang menerima sabda itu sendiri. Karena apa? Karena Sang Suksma Sejati yang menurunkan sabda itu adalah inti sari dari jiwa manusia yang sejati dari tiap orang.
 
 Jadi pepadang yang diterima seseorang itu adalah bagian halus dari jiwanya sendiri, yang dikeluarkan oleh Sang Suksma Sejati. Maka mengenai buku himpunan sabda-sabda itu tidak ada nama lain kecuali Sasangka Jati yang tepat."
 
-**Saudara Suteja** : \
+**Saudara Suteja** :
 "Makin lama saya mendengarkan hal ikhwal mengenai Pangestu, kok makin senang hatiku. Apa lagi, Kang."
 
-**Saudara Sasangka** : \
+**Saudara Sasangka** :
 "Kalau merasa senang mendengarkan, tentu juga sanggup meneruskan pepadang kepada siapa saja."
 
-**Saudara Suteja** : \
+**Saudara Suteja** :
 "Maunya mau, tetapi belum dimulai."
 
-**Saudara Sarjana** : \
+**Saudara Sarjana** :
 "Wah, ini, the coming man, asal tidak hanya koming saja, tetapi tidak pernah come-come."
 
-**Saudara Suteja** : \
+**Saudara Suteja** :
 "Aah, lihat saja nanti, bagaimana! Sekarang dengar saja Kang Kelana."
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Karena semua itu, penting sekali pendirian kita terhadap buku Sasangka Jati dan sikap kita pada waktu membaca pustaka suci kita itu. Pakde Narto saja, bila membaca buku Sasangka Jati, mengambil sikap susila, seolah-olah menghadap Sang Suksma Sejati.
 
 Padahal isi buku Sasangka Jati,ialah Sabda-sabda dari Sang Suksma Sejati, itu isi jiwa Pakde Narto sendiri. Jadi  Pakde Narto sendiri masih merasa perlu acap kali mengulang-ulangi Pelajaran dari  Sang Suksma Sejati.
 
 Saya mengenal sementara orang yang telah merasa cukup mengerti tentang Pepadang dari Sang Suksma Sejati dan segan untuk mengulangi pembacaan buku Sasangka Jati."
 
-**Saudara Sasangka** : \
+**Saudara Sasangka** :
 "Maafkan Kang bahwa saya ini meneronjol pembicaran Kakang. Tetapi soal ini mumpung saya belum lupa. Pikiranku tidak mau melepaskan soal nama Sasangka Jati. Apakah Kang Kelana dapat menceritakan atau membacakan kisah pertemuan antara Pakde Narto dengan Kapten Sasangka Jati? Kurasa kita semua ingin mendengarkannya."
 
 Suara 'setuju, ya, ya, ya, akor' bergetar memenuhi ruang duduk. Sang sitaresmi berlayar dengan tenang dan megah di antara awanawan. Alam di sekitar rumah Saudara Kelana diselubungi oleh cahaya selaka dari bulan purnama. Burung-burung telah tidur tenteram� diayunkan di dalam alam impian oleh suara para serangga.
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Wah, saya sendiri tidak hafal cerita itu. Tetapi saya mempunyai catatannya. Saya dapat membacakannya untuk Saudara sekalian. *Antosan sakedap nya*,  saya akan mengambilnya."
 
 *"Maangga !"*
 Sebentar lagi Saudara Kelana. kembali dengan catatan-catatannya dan mulai dengan bacaan tentang pertemuan antara Pakde Narto dengan Kapten Sasangka Jati.
 
-**Saudara Sasangka** : \
+**Saudara Sasangka** :
 "Kang Kelana kok punya banyak simpanan surat-surat. Itu bendelan surat apa saja ?
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "O, Adik-adikku. Semua ini surat-surat, catatan-catatan, dan arsip-arsip yang berharga sekali bagi umat manusia. Karena otakku terbatas sekali untuk mengingat-ingat semua ini, lebih baik kusimpan saja surat-surat yang berharga ini. Ketahuilah bahwa Indonesia memasuki sejarah baru. Maka apa saja yang sekiranya penting bagi sejarah bangsa Indonesia lalu kusimpan. Semua surat-surat, catatan, karangan dari Pakde Soemodihardjo dan Pakde Gunawan almarhum masih ada di dalam arsipku; catatan-catatan dari Pakde Hardjoprakoso almarhum juga dipelihara baik-baik, itu untuk memudahkan bagi siapa saja yang akan mempelajari sejarah, terutama sejarah Pangestu. Dokumentasi adalah sangat berharga sebagai bukti, dan dari dokumentasi kita dapat mengikuti perkembangan Pangestu dan tokoh-tokoh dari Pangestu.
 
 Sekarang akan kubacakan dokumentasi mengenai nama Sasangka Jati yang aslinya ditulis di dalam bahasa Jawa. Saya terjemahkan saja untuk keperluan Saudara.
 
-**Dengarkanlah** : \
+**Dengarkanlah** :
 Pada suatu hari, pada waktu sore langit nampak jernih terang-benderang, hawanya tidak dingin, Pakde Narto berjalan-jalan sendiri di jalan nan sepi, supaya tidak senantiasa menyingkiri jalannya mobil lewat yang bersimpang siur.
 
 Sebentar-sebentar Pakde Narto berhenti, menengok ke kanan dan ke kiri untuk memperhatikan sekitar jalan yang makin jauh tambah sepi, tidak ada seorang manusia pun yang berjalan.
@@ -658,72 +661,72 @@ Setelah Pakde Narto menerteramkan hati dan mengatur keluar masuknya napas sampai
 
 7) Suntrut (Jawa) = cemberut
 
-**Saudara Suteja** : \
+**Saudara Suteja** :
 "Suntrut itu apa?"
 
 Semua yang hadir segera memikir-mikirkan, apakah terjemahan tepat dari suntrut dan mrengut itu, tetapi tidak ada istilah yang tepat untuk mengganti kata-kata tersebut.
 
-**Saudara Sarjana** : \
+**Saudara Sarjana** :
 "Ah, sudah saja, jangan berhenti pada satu kata dan mempersoalkan itu saja. Biar Kakang Kelana menyelesaikan ceriteranya. Jangan memutuskan tali ceritera."
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Saya teruskan bacaanku. Pakde Narto lalu juga menyebut nama, asal, dan tempat tinggal beliau. Setelah Pakde Narto menguraikan riwayat dan tugas kewajibannya, kapten tua tadi tidak menjawab, hanya tersenyum saja, kemudian berkata demikian:
 
 "Dimas, sesungguhnya kewajiban dan apa yang telah disanggupkan untuk dilaksanakan dari Dimas itu sama dengan kewajiban dan tugasku, hanya bedanya: kasar dan halus, kecil dan besar, rendah dan luhur. Misalkan bulan, Kakakmu ini adalah bulan purnama sidi, sedangkan Adik bulan yang bulat, tetapi warnanya masih kemerah-merahan pada waktu sedang terbit. Umpama lakon wayang, Kakakmu ini adalah Resi Mayangkara dan.Dimas ini Begawan Anoman."
 
 Pakde Narto mau menjawab dan mohon penjelasan, bagaimana maksud kata-kata Sang Sasangka Jati tadi, tetapi tidak dapat mengeluarkan satu patah kata pun, dan pada saat itu kapten tua menghilang, meninggalkan Pakde Narto. Pakde Narto tinggal sendirian dan berpikir-pikir apakah gerangan maksud ucapan Sang Sasangka Jati tadi; apakah artinya bulan yang baru berwarna kemerah-merahan tersebut; akhirnya beliau pulang ke Pondok Jalan Nias 4." (di kota Bandung).
 
-**Saudara Sujana** : \
+**Saudara Sujana** :
 "Kakang Kelana pada permulaan mengatakan bahwa ceritera tadi sebenarnya lukisan tentang panembah.Bagaimana jelasnya persoalan itu?"
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Ya, memang benar demikian. Sekarang saya menanyakan: siapa di antara Adik-adik yang mau mengupas hal itu?"
 
-**Saudara Sasangka** : \
+**Saudara Sasangka** :
 "Mana bisa, Kang, kami baru saja masuk Pangestu, kok sudah disuruh bergaul dengan simbolik. Biar Kakang saja yang menjelaskan. Kami belajar pada Kakang."
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Sebenarnya, mengerti atau tidak mengerti itu bukan tergantung pada lamanya menyiswa, melainkan kesungguhan menyiswa. Saya pun tidak mengerti, kalau tidak ada Pepadang dari Sang Guru Sejati dan selalu didorong oleh Pakde Narto.
 
 Coba, kujelaskan dongeng tadi: Waktu sore, berarti saat antara siang dan malam, dan menggambarkan keadaan antara sadar dan tidur, yakni bila seseorang sedang manembah. langit jernih terang benderang dan hawa tidak dingin mempunyai arti: tidak ada persoalan apa-apa yang dipikirkan dan dirasakan.
 
 Pakde Narto berjalan-jalan sendirian di jalan sepi, supaya tidak senantiasa menyingkiri jalannya mobil yang lewat bersimpang siur, ini suatu pernyataan bahwa Pakde Narto sedang manembah. Di dalam panembah manusia mesti sendirian, tidak mungkin berdua, sekalipun dengan 'sehidup sematinya.' Makin mendalam panembahnya, makin sunyi, dan harus menjauhkan diri dari lalu lintas ramai. lalu lintas ramai itu simpang siurnya angan-angannya sendiri. Itulah yang harus disingkiri. Sebentar-sebentar Pakde Narto menyadari keadaan diri sendiri yang makin lama tambah sepi dan sunyi, sampai tiada kehidupan lain daripada diri sendiri. Sinar bulan sebentar kelihatan, sebentar lagi hilang, karena diliputi oleh awan yang gelap, yang berlalu berlayar menutupi bulan yang baru tanggal tujuh: harus diartikan bahwa karena keadaan heneng-hening belum permanen, tempo-tempo Siswa yang manembah masih kembali tertarik oleh daya tarik dunia yang diumpamakan awan yang gelap. Bulan tanggal tujuh berarti bahwa Siswa yang bersangkutan sedang menuju kepada keadaan bulan purnama dan telah setengah jalan yang dilalui di dalam panembah ini."
 
-**Saudara Suteja** : \
+**Saudara Suteja** :
 "Wah, kok bagus benar, ya!"
 
-**Saudara Sarjana** : \
+**Saudara Sarjana** :
 "Jangan sebentar-sebentar main potong cerita, dong!"
 
-**Saudara Suteja** : \
+**Saudara Suteja** :
 "Saya ini tidak dapat menahan perasaanku, karena terpesona oleh dongeng tentang Pakde Narto. Pakde Narto kok banyak akalnya, ya. *Elok lo*, Pakde!"
 
-**Saudara Sasangka** : \
+**Saudara Sasangka** :
 *"0, niki men dereng* ! Tetapi kami minta Kang Kelana meneruskan penjelasannya saja."
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Saya akan meneruskan kupasan simbolik selanjutnya. Karena jalannya telah sementara jauh, Pakde Narto merasa lelah, berarti: setelah panembah makin lama makin mendalam, Pakde Narto menyerah diri dan kemudian berteduh di bawah pohon Boddhi.
 
 Pohon Boddhi berarti Sumber Pepadang, yang melindungi semesta raya dan seisinya ini, dan dengan sendirinya tempat yang sesungguhnya untuk berlindung. Angin yang merayu-rayu sepoi-sepoi melukiskan keadaan nikmat sekali dan Pakde Narto ngantuk, ialah saat Pakde Narto benar-benar di dalam keadaan luyut atau heneng-hening. Pada saat itu Pakde Narto ditegur oleh Kapten tua Sasangka Jati, ialah saat Sang Suksma Sejati menyampaikan sabdanya. Tadi telah kuterangkan aslinya Sasangka Jati. Tidak lain dari 'sama' dengan artinya Soenarto, dan Pakde Narto pada waktu itu berpangkat kapten. Bertemu dengan Kapten Sasangka Jati berarti pula bahwa Pakde Narto bertunggal dengan Sang Guru Sejati. Kapten Sasangka Jati pernah diikuti terus oleh Pakde Narto pada waktu di Jakarta.
 
 Ini suatu pernyataan bahwa pada waktu diJakarta Pakde Narto juga bertunggal dengan Sang Suksma Sejati pada waktu manembah, dan di dalam tugas sehari-hari selalu mendekat dan menaati Petunjuk-petunjuk dari Sang Suksma Sejati. Rumahnya Kapten SasangkaJati di Asrama Andana Warih di wilayah gunung Arga Manunggal, mempunyai arti juga, yakni Kapten Sasangka Jati selalu memberi Pepadang terus-menerus bagaikan air yang , mengalir dan derajat ,kejiwaan Kapten Sasangka Jati adalah derajat manusia yang telah bertunggal dengan Sang Suksma Sejati. Sifat bertemu sangat mirip pertemuan di dalam kekeluargaan, dan sekalipun baru saja berkenalan berdekatannya seperti telah bersahabat lama, itu mudah dimengerti, bila bisa memahami perimbangan antara Siswa yang terpilih dengan Sang Suksma Sejati."
 
-**Saudara Sudibya** : \
+**Saudara Sudibya** :
 "Bagaimana itu perbandingan antara tugas Pakde Narto dan Sang Sasangka Jati, yang satunya kasar, kecil, rendah, dan yang lain halus, besar, dan luhur."
 
-**Saudara Sarjana** : \
+**Saudara Sarjana** :
 "Coba, saya yang menjawab. Tugas dari Siswa yang terpilih, meskipun sudah Siswa yang berderajat tinggi, masih ada kekurangan dan kesalahannya, sedangkan tugas itu tidak berubah setelah Siswa meningkat menjadi Guru Sejati. Hanya sebagai Guru Sejati pelaksanaan tugas telah menjadi sempurna adanya, tanpa kekurangan dan kesalahan sedikit pun. Apakah tugasnya? Tugasnya ialah bertindak sebagai Obor yang memberi pepadang, sebagai Penolong bagi yang jatuh di dalam perjalanan yang benar, sebagai Penghibur bagi yang sedang menderita kesusahan, sebagai Siswa yang berbudi luhur mengampuni kesalahan orang lain, dan selalu bertindak berdasarkan rasa keadilan yang halus dan tinggi. Itulah tugasnya."
 
-**Saudara Sujana** : \
+**Saudara Sujana** :
 "Hm,sekarang apakah artinya bulan yang berwarna kemerah-merahan?"
 
 **Saudara Sarjana mengerutkan kening, mulut ditutup rapat-rapat, bibir digigit, matanya kedip-kedip** : 
 "Ya,' ini begini, oh, eh, bagaimana ya. Wah, kok ya sukar. Bagaimana ini."
 
-**Saudara Sujana** : \
+**Saudara Sujana** :
 *"Roep maar de priester. Ngundang kaum wae !* Kang Kelana, Sarjana membutuhkan PPPK = Pertolongan Pertama pada Kemacetan."
 
-**Saudara Kelana** : \
+**Saudara Kelana** :
 "Itu sebenarnya memang sukar, dan maklumlah, Adik-adik semua ini baru saja masuk di dalam kalangan Pangestu.
 
 Tetapi tidak lama lagi Adik-adik pasti dapat mengupas semua persoalan kesiswaan berkat Pepadang dan Tuntunan dari Sang Suksma Sejati. Jangan lupa bahwa semua kebijaksanaan bersumberkan sadar akan Tripurusa. 
