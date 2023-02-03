@@ -1,4 +1,4 @@
-# SASANGKA JATI
+# SASANGKA JATI (JAWA)
 
 ```{figure} coverbk/under-construction-snb.png
 :alt: underconstruction
@@ -637,7 +637,6 @@ Soenarto
 [^8]: Miturut pitedahipun Pakdhe Narto, "ular-ular" kawedalaken awujud buku piyambak, kapisah saking pustaka Sasangka Jati, kanthi pangajap mugi-mugi saged nggampilaken pangertosanipun para nupiksa ngengingi sabda wejanganipun Sang Guru Sejati ing buku punika.
 
 ### Bab ingkang Kaping Sapisan
-
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/23%20Bab%20Ingkang%20KapingSapisan.mp3" type="audio/mpeg"></audio><br/>
 
@@ -1369,7 +1368,8 @@ Ing layang Paliwara wus katerangake mungguh pepacaking Pangeran kang kaping lima
 
 Para manungsa wus padha mangerti manawa congkrah iku ngringkihake kekuwatan, Ian rukun agawe santosa, nanging apa sababe dene manungsa isih dhemen cecongkrahan, iku amarga isih padha gegedhen pamrih marang barang kang ora langgeng, kayata: dhemen marang bandha kadonyan kang luwih saka samurwating urip prasaja, dhemen marang pangaji-aji Ian suwur, Ian sapanunggalane. Kabeh iku dadi dalaning setan, kang nuntun marang tuwuhing watak: drengki, srei, panasten, lumuh kaungkulan, sesongaran, dhemen mitenah, Ian sapanunggalane, kang temahane nganakake pasulayan, padudon, bisa uga nekakake paprangan, kang wohe mung padha ngundhuh karusakan (kasangsaran). Iya kasangsaranira iku yen kongsi kabanjur-banjur, ora gelem martobat, bakal agawe lalinira marang Pangeran, satemah tekaning delahan, dumunung aneng alam kafiruna, iya dunung kasangsarane para jiwa-jiwa kang padha lali marang Pangeran. Ewa samano yen sira ora pracaya, iya cobanen nerak pepacak iki, manawa sira kapengin ngrasakake sangsara ing donya Ian ing akire.
 
-### Bab 3 
+### Bab 3
+
 #### Katrangane Ganjaran Ian Pidananing Pangeran kang Lumrahe Diarani Ngundhuh Wohing Panggawe
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/45%20Bab%203%20Katrangane%20Ganjaran.mp3" type="audio/mpeg"></audio><br/>
@@ -1442,7 +1442,8 @@ Kosok baline, sanadyan kaya apa wae wujuding kasangsaran lair, tumraping kauripa
 
 Sanadyan kang wus kapungkur sira darbe dosa, nanging manawa samengko sira banjur martobat kalawan sampurna, netepi kaya karsaning Pangeran, kang wus dadi paugeraning urip, kanthi sira suceni kalawan kalakuan becik limang prakara, kaya kang wus katerangake ing buku Hastha Sila, dosanira bakal Ingsun lebur. Amarga samengko sira wus mangerti, manawa Pangeran iku ora sipat midana, kaya kang wus katerangake ing dhuwur, mula yen samengko sira ora gelem setiyar anindaki martobat netepi sesanggemanira telung prakara, dalah sarat-sarate, kaya kang wus katerangake mau, ganjaran utawa nugrahaning Pangeran ora bakal tumeka, kang bisa ngenthengake marang sesangganing dosanira kang wus kapungkur, mula sira bakal lestari kombak-kombul aneng samodraning pepeteng, kang tansah nuwuhake bungah susah sarta giris. Mula yen sira sumedya slamet, anggonira padha sumusup aneng pepetenging donya, iya netepana kabeh prajanjiane Pangeran, kang wus padha sira sanggemi iku.
 
-### Bab 4 
+### Bab 4
+
 #### Tekaning Piweleh Ian Leburing Dosa
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/49%20Bab%204%20TekaningPiwelweh%20Lan%20Leburing%20Dosa.mp3" type="audio/mpeg"></audio><br/>
@@ -1483,7 +1484,8 @@ Samengko anerusake maneh, panunggalane kahanan kang agawe sangga runggi, yaiku w
 
 Awit saka iku sira ora perlu anggagas, sapira keh sathithiking dosanira kang wus kapungkur, amarga wanci kang wus kelakon iku wus ora bisa dibaleni maneh, kajaba mung kudu diwangun sarana martobatira samengko wae, kava kang wus tinutur, iku margane yen sira arep slamet tumekaning dalan sangkan paranira. Manawa sira wus mangerti, yen kahananira samengko iku kadadean saka wohing panggawenira kang wus kapungkur, dadi sira uga mangerti manawa ing tembe iku uga gumantung kahananira samengko, dadi sejatine sira iku uga bisa masesa marang kahananira kang bakal kelakon (ing tembe), manawa ing samengko sira wus bisa masesa Ian anguwasani marang kang masesa sira, yaiku angen-angen Ian napsunira, kang tansah masesa sira dadi kawulane, satemah sira kapeksa winasesa dening angger-anggering panggawe, kang tansah nganakake bungah susah. Manawa sira wus bisa nguwasani angen-angen Ian napsunira, sira bisa tumindak kang nocogi karsaning Pangeran, yaiku sira nuli kacedhak kalawan Pangeran, kang nguwasani kahanan ing tembe, dadi kang luwih perlu sira pikir iku tumindakira samengko wae, angkahen bisane nocogi karsaning Pangeran mau.
 
-### Bab 5 
+### Bab 5
+
 #### Tekaning Piwales Tumrap Panggawe Ala, kang Durung Rinuwat Sarana Martobat, Katetep Ian Luware Panggawe saka Dosa Pati
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/51%20Bab%205%20Tekaning%20Piwales.mp3" type="audio/mpeg"></audio><br/>
@@ -1548,7 +1550,9 @@ Tumrap sira siswaning-Sun kang wus padha diwasa, Ian mituhu dhawuh Ingsun, bakal
 ## SERAT PANEMBAH
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/53%20Panembah.mp3" type="audio/mpeg"></audio><br/>
-### PURWAKA 
+
+### PURWAKA
+
 Buku Kandhutan VII
 PURWAKA
 
@@ -1615,7 +1619,9 @@ Dene pepadhang piwulang Ingsun iki, sejatine mung tuntunan, marang sing sapa kan
 Dene jerengane katrangan kang luwih dawa, ing atase sesanggeman gedhe telung prakara mau (eling, pracaya, mituhu), iku wus kamot aneng piwulang Ingsun, kang pinengetan aneng layang Hastha Sila/ Paliwara/ Gumelaring Dumadi/ TunggalSabda/ Dalan Rahayu/ Sangkan Paran, Ian liya-liyane maneh.
 
 ### Bab 1 Panembah
+
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/55%20Bab%201%20Panembah.mp3" type="audio/mpeg"></audio><br/>
+
 #### Adeg-adeg kang Kapisan
 
 Ringkesan Katranganing Panembah Telung Tataran Wruhanira para siswaning-Sun kabeh, sanadyan Ingsun uga bakal anerangake: bab laku-Iakune (patrape) panembah telung tataran sarta teges-tegese, ewa samano Ingsun uga ora nedya meksa marang sira kabeh, supaya tumindak kava katrangan kang Ingsun warahake iki. Ingsun mung anuruti panyuwunira, kapriye mungguh patrap-patrape Ian tegese panembah, kava kang wus Ingsun dhawuhake aneng buku pengetanira, layang Hastha S;/a, kayata:
@@ -1711,6 +1717,7 @@ Kajaba saka iku, satuhune iva dudu Pangeran Ian Ingsun kang anglebur dosa, nangi
 ### Bab 2
 
 #### Teges-teges kang Gegandhengan kalawan Panembahing Raga (Kawula) marang Roh Suci
+
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/58%20Bab%202%20Teges%20-%20Teges%20Gegadhengan.mp3" type="audio/mpeg"></audio><br/>
 
 #### Adeg-adeg kang Kapisan Teges-teges Ian Pigunane Nganggo Tembung Arab Sawatara
@@ -1721,7 +1728,7 @@ Sumurupa, tembung Hu iku uga kena ditegesi: Allah iku Siji, nanging satuhune uga
 
 Dene tembung Allah iku tegese: Suksma Kawekas kang Mahaluhur, Mahaasih, kang anglimputi jagat rat pramudita, Ian anguwasani kabeh alam saisine, iva kang dadi kamulaning sagung dumadi.
 
-#### Adeg-adeg kang Kaping Pindho:  Wancining Panembah Tumrap Jiwa kang Isih Mudha Gandhimge Kalawan Teges-tegese Wilanganing Adegane Panembah
+#### Adeg-adeg kang Kaping Pindho: Wancining Panembah Tumrap Jiwa kang Isih Mudha Gandhimge Kalawan Teges-tegese Wilanganing Adegane Panembah
 
 Samengko kang perlu Ingsun terangake marang sira, bab wancining manembah Ian wilanganing adegan, tumrap jiwa kang isih mudha, iku mung Ingsun ringkes dadi rong perangan. Tumraping wanci, yaiku:
 
@@ -1860,9 +1867,11 @@ Minangka tandha pamudhare, tangane loro kang nadhah amin mau, nuli kaudhunake sa
 ### Bab4
 
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/62%20Bab%204%20Teges%20-Teges%20Kang%20Gegandhengan%20Kalawan.mp3" type="audio/mpeg"></audio><br/>
+
 #### Teges-teges kang Gegandhimgan Kalawan Panembahing Suksma Sejati Marang Suksma Kawekas
 
 #### Adeg-adeg kang Kapisan
+
 Adheping Keblat, Wancining Panembah Ian Tegese
 
 Tumrap adheping keblat, wus ora ana bedane kalawan katrangan kang wus kasebut ing ngarep. Dene wancining panembah, uga padha kava dene wancining panembahe Roh Suci marang Suksma Sejati, mung kaceke: wus tanpa adegan sarta tumandanging badan (raga), nanging mung kalawan lungguh sila tumpang (suku tunggal). Dadi kang padha mung wancining panembah sarta tegese, yaiku:
@@ -1872,6 +1881,7 @@ Tumrap adheping keblat, wus ora ana bedane kalawan katrangan kang wus kasebut in
 3. Wayah metuning pajar kang bener (subuh
 
 #### Adeg-adeg kang Kaping Pindho
+
 Tegese Lungguh Suku Tunggal Ian Liya-liyane Sasmita
 
 Mungguh karepe lungguh suku tunggal (sila tumpang) tumrap panembahing jiwa kang wus luhur ing budi, iku kajaba ateges wus bisa nglungguhi watak utama limang prakara (rila, narima, temen, sabar, Ian budi luhur), amarga dhirine kang asor (napsu patang prakara Ian angenangene tetelu) wus kawasesa (teluk), uga aweh sasmita, manawa ing sejatine wus ora ana sesinggetan kang amatesi panunggaling Tripurusa, amarga kabeh warana wus kabuka, mula teteluning sipat wus kumpul dadi siji, utawa nunggal saedhat. Dadi panembahe jiwa kang wus luhur ing budi, iku kava upamane Sang Patih kang manembah Sang Ratu ana ing dalem kadhatoning Sang Nata.
@@ -1968,6 +1978,7 @@ Manawa napsu patang prakara wus kalindhih, iku lawanging kamar angka 1 tumeka an
 Sarehning pambukake kamar angka 5, 6, Ian 7, iku ora gampang yen ora antuk pitulunging Pangeran utawa nugrahaning Pangeran, muiane kawula iva kudu netepi wajibe dhisik, kang wus dadi sesanggemane, kava upamane kang wus pinacak ing layang Hastha Si/a, Paliwara, Dalan Rahayu, Ian sapanunggalane. Pepindhane kava dene abdi kang setya tuhu marang bandarane, wus mesthi wae bandarane iva banjur asih marang abdi kang setya mituhu marang wajibe mau. Awit saka iku yen kawula pancen pracaya marang Pangerane kang sejati, iva kudu mituhu marang kabeh dhawuhing Pangeran kang lumantar Utusane, endi kang dipilih antaraning pituduh rahayu kang sanyata saka Pangeran. Yen ora utawa durung pracaya marang pituduh Ingsun, iva miliha pituduh rahayu kang mijil saka tuntunan Islam utawa Kristen, salah sijine, supaya bisa slamet anggone lumaku, tumekaning dalan sangkan parane, waton diantepi kalawan mituhu.
 
 #### Adeg-adeg 2: Bab Sesuci Lair Batin
+
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/65%20Adeg-%20Adeg%202%20Bab%20Sesuci%20Lair%20Batin.mp3" type="audio/mpeg"></audio><br/>
 
 Kasucian iku dadi praboting manembah, utawa anggon-anggoning kawula anggone nedya sumiwi ing ngayunaning Pangeran, muiane iva ora kena ditinggal, amarga iku kang minangka tata krama Ian kasuciane, ing atase abdi kang mara sowan utawa ngadhep ratu gustine.
@@ -1999,6 +2010,7 @@ Sira padha pitakon bab kahanan-kahanan liya-liyane, kang dadi alanganing panemba
 5. Samono uga tumraping wong kang mentas saresmi, utawa ngetokake nutpah (mani), manawa lagi ana arale kasepen banyu, utawa alangan gegepokan kalawan banyu, kang nyababake kepeksa ora bisa sesuci adus jinabat, uga ora perlu dianggep dadi alangan anggone arep tumindak bekti (manembah) marang Pangeran. Amarga sejatine kang dadi alangan iku, manawa ing sajroning manembah eling marang tindak saresmi, iku kang angregedi atine, mula iya ora sah panembahe. Sarehning ora saben wong tumuli bisa ngilangake tabeting gagasan, tumrap lelakon utawa kahanan kang nembe dikawruhi utawa ditindaki, mula supaya bisa ngilangake rasa pangrasane, iya kudu disalini rasa pangrasa anyar. Upamane rumangsa durung suci amarga ora bisa oleh banyu (kasepen banyu), nuli sesuci kalawan lebu kang resik, iku wose iya mung supaya salin pangrasa: samengko wus suci. Mangkono banjur bisa narik marang jenjeming atine ing sajroning manembah.
 
 #### Adeg-adeg 5: Panutuping Sabda
+
 <br/><audio controls><source src="https://satyaaditech.github.io/audiolib/ssj/66%20Adeg%20-%20Adeg%205%20Panutuping%20Sabda.mp3" type="audio/mpeg"></audio><br/>
 
 Ing sarampungipun paring katrangan, bab lampah-Iampahing panembah tigang tataran, dalah prabot-prabot saha tegesipun, Sang Guru Sejati (Suksma Sejati), lajeng mungkasi dhawuh pangandika, minangka panutuping sabda, kados ing ngandhap punika.
