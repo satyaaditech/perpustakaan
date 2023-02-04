@@ -1,9 +1,28 @@
-# Data Audio Visual
-## KUMPULAN KIDUNG
+# KUMPULAN KIDUNG DAN GENDHING JAWA
 
+## KUMPULAN KIDUNG 
 
+| Judul     | Tautan|
+| ----------- | ----------------------------------------- |
+| KIDUNG SUCI | [kidung suci](https://www.youtube.com/embed/QTxxH_-Q8Rg) |
 
-**Kidung Suci**
----
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QTxxH_-Q8Rg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
----
+<!-- |05 GAMBUH PL BR|[Kumpulan gedhing Ajaran SGS  I ]()|
+|06 KINANTHI PL BR|[Kumpulan gedhing Ajaran SGS  I ]()|
+|07 GIRISA PL 6   EDTN|[Kumpulan gedhing Ajaran SGS  I ]()|
+|07 GIRISA PL 6|[Kumpulan gedhing Ajaran SGS  I ]()|
+|07 GIRISA SL MY|[Kumpulan gedhing Ajaran SGS  I ]()|
+|08 DDGULO PL 6|[Kumpulan gedhing Ajaran SGS  I ]()|
+|09|[Kumpulan gedhing Ajaran SGS  I ]()|
+|10 KINANTHI PL 6|[Kumpulan gedhing Ajaran SGS  I ]()|
+|11 MIJIL|[Kumpulan gedhing Ajaran SGS  I ]()|
+|12 MIJIL PL 6 WIGARINGTYAS|[Kumpulan gedhing Ajaran SGS  I ]()|
+|12 MIJIL PL|[Kumpulan gedhing Ajaran SGS  I ]()| -->
+
+## KUMPULAN GENDHING JAWA
+| Judul     | Tautan|
+| ----------- | ----------------------------------------- |
+|01 KINANTHI SL MY|[Kumpulan gedhing Ajaran SGS  I ](https://youtu.be/hZyw_J08x4s)|
+|02 MEGATRUH SL MY|[Kumpulan gedhing Ajaran SGS  I ](https://youtu.be/hZyw_J08x4s?t=960)|
+|03 GAMBUH SL MY  BLM ED|[Kumpulan gedhing Ajaran SGS  I ](https://youtu.be/hZyw_J08x4s?t=1619)|
+|03 GAMBUH SL MY|[Kumpulan gedhing Ajaran SGS  I ](https://youtu.be/hZyw_J08x4s?t=3065)|
+|04 DDGULO BANJET PL BR|[Kumpulan gedhing Ajaran SGS  I ](https://youtu.be/hZyw_J08x4s?t=4413)|
