@@ -4,7 +4,12 @@
 
 | Judul     | Tautan|
 | ----------- | ----------------------------------------- |
-| KIDUNG SUCI | [kidung suci](https://www.youtube.com/embed/QTxxH_-Q8Rg) |
+| KIDUNG SUCI | [KIDUNG SUCI](https://www.youtube.com/embed/QTxxH_-Q8Rg) |
+| KINANTHI KUWAJIBANING NGAURIP | [KINANTHI KUWAJIBANING NGAURIP](https://youtu.be/jG_yR0hTN_k) |
+| MIJIL PANGLIPUR LARE | [MIJIL PANGLIPUR LARE](https://youtu.be/sMa0VTbo0rA) |
+| LIR-ILIR TAMAN KAMULYAN LANGGENG | [LIR-ILIR TAMAN KAMULYAN LANGGENG](https://youtu.be/ufwgLCnk-ao) |
+| WARISAN LANGGENG | [WARISAN LANGGENG](https://youtu.be/xGmJ_8rl_TY) |
+
 
 <!-- |05 GAMBUH PL BR|[Kumpulan gedhing Ajaran SGS  I ]()|
 |06 KINANTHI PL BR|[Kumpulan gedhing Ajaran SGS  I ]()|
