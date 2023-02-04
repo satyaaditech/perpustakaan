@@ -1171,7 +1171,7 @@ Bapak, nyenyuwun ing ngayunaning Pangeran mugi-mugi arwahipun
 suwargi Pak Guno tinampi manunggil ing Pangeran ing alam kamulyan
 langgeng.11
 
-BABIV
+## BAB IV
 
 Swasana ing Dana Warih taksih linimputan raos tidhem premanem.
 Wasana kawontenan ingkang makaten wau lajeng santun, upamia sekar
@@ -1611,3 +1611,184 @@ punika badhe katampi dening sadaya umat, inggih punika ingkang sami:
    . tuwin kasangsaran.
 3. Kapengin anggadhahi jiwa ingkang kiyat tuwin sehat, saha kapengin
    anggadhahi budi pakerti ingkang utami."
+
+
+Bapak Pangrasa midhangetaken kanthi manthuk-manthuk, kawistara suka renaning panggalih, paring dhawuh:
+
+"Nak Jatmika, kula ngiyataken keyakinanipun putra kanthi pamuji mugi-mugi sadaya umat samia nggadhahi gegayuhan ingkang luhur tuwin utami wau, awit saking sih, tuntunan, saha pepadhangipun Sang Guru Sejati. Satuhu."
+
+Wasana Sadherek Sri Rejeki sumambet atur:
+"Bapak, kula nyuwun mugi kaparenga Bapak paring katerangan bab
+panembah tigang tataran kados ingkang kasebut ing pandangonipun
+Bapak nomer 7a, inggih punika:
+
+1. Panembahing kawula dhateng Roh Suci.
+2. Panembahing Roh Suci dhateng Suksma Sejati.
+3. Panembahing Suksma Sajati dhateng Suksma Kawekas.
+
+Punika kados pundi? Kula dereng pates mudheng."
+
+Bapak Pangrasa:
+"Nak Sri, minangkani pamundhutipun putra, kula badhe nerangaken kanthi ringkes bab panembah tigang tataran. Kawuningana, bilih panembah punika yektosipun inggih namung satunggal, inggih punika manembah dhateng Pangeran Ingkang Maha Tunggal. Dene ingkang tinatar tigang tataran punika drajating kasiswan utawi jiwanipun para ingkang nindakaken panembah. Terangipun makaten.
+
+1. Panembahing Kawula dhateng Roh Suci
+
+Punika kalebet tataran 1, sinebut drajat Calon Siswa, inggih punika kawontenanipun tiyang ingkang sampun tinarbuka manahipun, niyat nyiswa ing padanipun Sang Guru Sejati (Suksma Sejati) utawi ngibadah ngestokaken dhawuhipun Allah. Panembahipun para calon Siswa dhateng Pangeran punika saweg dumugi lampah nindakaken bektinipun. Utawi saweg kalebet perangan sembah raga lan sembah cipta. Dene kasucianipun saweg wiwit binangun. Upamia tiyang adus makaten, badan sampun kagebyur toya, nanging dereng kosokan. Para calon Siswa saweg mbudidaya nelukaken akunipun sarana meper ubaling hawa nafsunipun ingkang tumuju dhateng tindak ingkang nyulayani angger- anggering kautaman, kasusilan, tuwin kaadilan, linambaran tapa brata sawatawis inggih punika ngengirangi utawi matesi dhaharipun, ngunjukipun, sarenipun, sahwatipun, pakareman, tuwin kasenenganipun.
+
+2. Panembahing Roh Suci dhateng Suksma Sejati
+Punika kalebet tataran 2, sinebut drajat Siswa. Panembahipun para Siswa dhateng Pangeran kanthi linambaran raos celak, tresna tuwin sengsem sumiwi ing ngayunaning Pangeran Ingkang Maha Tunggal. Panembahipun rinaos minangka tangsul panggandh€mg antawisipun kawula lan Gusti. Dene kasucianipun sampun wiwit rinasuk. Upami tiyang adus makaten, badanipun sampun dipunkosoki kokot bolotipun; badan kasabun mawi sabun wangi. Para Siswa sampun saged nelukaken akunipun satemah kawasa njumenengaken Roh Sucinipun, inggih jiwanipun ingkang sejati ing telenging sanubari ingkang sinuci. Siswa sam pun nggadhahi watak uta mi. Panembahipun sampun dumugi heneng, hening, awas, eling. Punika kalebet perangan sembah kalbu (manah) tuwin sembah rasa.
+
+3. Panembahing Suksma Sejati dhateng Suksma Kawekas
+Punika kalebet tataran 3, sinebut drajat Guru. Panembahing para Siswa ingkang sampun dumugi drajat Guru inggih punika ingkang sampun manunggil lan Sang Guru Sejati, angesthi manunggil kaliyan Pangeran Ingkang Maha Tunggal ing telenging Gesang, salebeting rahsa jati, inggih ing telenging sanubari ingkang sinuci. Dene anggenipun mangun kasucian sampun sampurna, mila saged anglenggahi 'dhampar' budi luhur saha sampun ngrasuk 'busana anyar' ingkang edi peni abadi tuwin sumunar prabanipun. Ing tataran 3 punika sampun dumugi sampurnaning panembah utawi sejatining panembah. Ingkang manembah lan ingkang sinembah sampun dados satunggal.
+
+Dene umat utawi Calon Siswa ingkang dumugi drajat Guru punika bebasan 'Sayuta siji ombyokan', tegesipun: boten sadhengah umat saged dumugi drajat ingkang agung wau, kajawi para piniji, awit sa king kaparenging Allah. Wondene umat ingkang piniji wau sabab sa king anggenipun mituhu angestokaken dhawuhing Allah, inggih punika ingkang sami temen-temen lumampah ing dalan rahayu, payungan Tri Sila, tuwin ngagem busana Panca Sila, nyingkiri Paliwara, inggih pepacuh-ing Pangeran.
+
+Ingkang nguningani drajating kasiswan punika inggih namung Sang Guru Sejati piyambak. Dene ingkang nginggahaken tataran drajating kasiswan punika inggih para Calon Siswa piyambak, saking anggimipun sami temen':'temen mituhu angestokaken dhawuhipun Sang Guru Sejati ingkang cinandhi ing pustaka suci Sasangka Jati.
+
+Nak Sri, kados cekap semanten anggen kula nerangaken bab panembah tigang tataran. Manawi putra kapengin priksa moncering andharan ing bab punika, kaparenga maos buku Bawa Raos ing Salebeting Raos. Buku wau ngewrat pengetan wejangan kula dhateng anak-anak kula: Pangaribawa, Prabawa, lan Kemayan ...
+
+Sadherek Sri Rejeki:
+.. Bapak, kula ngaturaken genging panuwun kula, dene Bapak sam pun kepareng minangkani panyuwun kula paring katrangan bab Panembah tigang tataran kanthi gamblang, ingkang darnel dhamanging pangertosan kula. Ingkang sapunika kula boten badhe tidha-tidha malih ing atasing lampah panembah. Kajawi saking punika ngengeti dhawuhipun Bapak punika wau, bilih ingkang nginggahaken drajating kasiswan punika inggih para CaJon Siswa piyambak, saking anggenipun temen-temen mituhu angestokaken dhawuhipun Sang Guru Sejati. Mila awit saking punika kula badhe nambahi derenging tekad badhe mesu brata, supados kula saged mituhu angestokaken dhawuhipun Sang Guru Sejati, supados panembah kula saged dumugi kawontenan heneng, hening, awas, eling. Ing sapunika kula mangertos sababipun punapa, dene yen kula nuju manembah, angen-angen kula tansah jumbal-jumbul saha alam pikiran kula rame kados wonten salebeting pasar malem. Dene ingkang nyababaken makaten wau amargi wekdal kula ing salebeting manembah dereng gadhah raos sengsem sumiwi ing ngayunaning Pangeran, saha dereng gadhah raos celak tuwin tresna dhateng Sang Guru Sejati. Awit saking punika alam pikiran lajeng gampil nyeleweng, kaganggu warni-warnining kawontenan ingkang nabet ing pikir tuwin sumimpen ing angen-angen. Upaminipun saweg manembah lajeng enget wos sal iter regi Rp so,- lajeng nyut enget kapengin mobil ingkang 'njenthit' dereng kelampahan. Makaten molak maliking alam pikiran yen nuju manembah. Mugi-mugi kemawon wiwit ing dinten punika kula saged netepi hubayaning manah mituhu angestokaken dhawuhipun Sang Guru Sejati ingkang narik inggahing drajating kasiswan kula, satemah kula boten badhe kombak-kombul utawi kaombang-ambingaken dening ewah gingsiring kawontenan ingkang gumelar ing donya ingkang boten langgeng punika.
+
+Bapak, kula kapengin gadhah buku Bawa Raos ing Salebeting Raos amargi kula mireng bilih buku wau isi sesuluh kados pundi para Calon Siswa anggemipun kedah nindakaken dhawuhipun Sang Guru Sejati ingkang cinandhi ing pustaka suci Sasangka Jati. Mila buku Bawa Raos punika mujudaken buku praktikum. Nanging, sayang, kula sampun boten uman buku wau amargi sampun telas. Kula ugi sampun kintun serat saha tilpun dhateng Pengurus Pangestu bagian Perpustakaan. Kula pikantuk wangsulan bilih buku wau badhe dipuncapaken malih. Hingga sapriki kula dereng pikantuk kabar malih. lnggih, kula tampi kangge latihan sabar menanti."
+
+Bapak Pangrasa:
+"Nak Sri, kula· bingah sanget dene anggen kula ngaturi katrangan bab tataraning panembah saged tinampi dening putra, saha nambahi derenging pangudi supados putra saged minggah tataraning kasiswan.
+
+Kula jangkung kanthi puja-puji mugi putra sekaliyan saged nampi sih nugrahaning Pangeran, kasembadan punapa ingkang putra gayuh, inggih gegayuhan ingkang luhur tuwin suci. Satuhu."
+
+## BAB V
+
+Sadherek Sri Rejeki:
+"Dhuh, Bapak pepundhen kula, sapinten ageng tuwin gumbiraning manah kula boten saged kula aturaken kanthi tetembungan, dene Bapak tansah ngilekaken sih dhateng putra kekalih pindha ilining tirta narmada, paring pangestu winantu puja-puji supados kula kekalih saged nampi sih nugrahaning Pangeran, kasembadan punapa ingkang putra gayuh, angayahi kuwajiban ingkang luhur tuwin suci dados siswa purnama. Ingkang punika putra kekalih ngaturaken genging panuwun. Sadaya dhawuhipun Bapak kula candhi ing salebeting sanubari saha badhe kula estokaken. Ing sapunika putra boten badhe tidha-tidha malih nindakaken kuwajibaning siswa purnama. Amargi upami nyebar wiji makaten sampun mangertos caranipun. Nanging sanadyan makaten putra tansah cumadhong dhawuh kados pundi murih wiji ingkang sampun kula sebar wau boten dipuntedha ayam saha lajeng saged thukul semi ngrembaka."
+
+Bapak Pangrasa:
+"Nak Sri, bab caraning nyebar wiji punika kenging kawastanan gampil, sanadyan boten sadhengah tiyang saged nindakaken. Dene ingkang gawat tuwin awrat punika kados pundi pangupakara utawi pangreksanipun supados wiji ingkang katanem wau saged thukul semi ndadi. Makaten ugi ngayahi utawi nindakaken kuwajibaning siswa purnama punika taksih kalebet gampil, sanadyan makatena boten sadaya siswa saged nindakaken. Dene ingkang kula anggep radi gawat tuwin awrat punika bab pambudidaya utawi panggulawenthahipun supados para calon siswa ingkang sampun kadhidhik wau saged majeng lampahipun ing margining kasiswan, mituhu angestokaken dhawuhipun Sang Guru Sejati. Dene caranipun, para calon siswa wau kedah kagulawenthah kanthi tlatos tuwin sabar lan tansah kagembleng murih mangertos ingkang sayektos bab-bab ingkang kedah katindakaken. Panggulawenthah wau boten beda ibu ingkang nuntun utawi netah anakipun ingkang dereng
+
+saged mlampah. Tumindakipun kedah adhedhasar kasabaran, kaiklasan, tuwin pangurbanan. Kajawi saking punika, para siswa purnama supados nggadhahi daya penarik kedah suka tuladha kanthi lampah ingkang nyata: upaminipun Panca Sila boten kandheg ing pangerti, nanging kedah kababaraken kanthi pakarti, rumesep ing sanubari dados budi pekerti ingkang utami. Ugi perlu suka tuladha bab selah bawa, tandang tanduk sarwa prasaja, tata susila, tuwin boten ngadi busana. Kuwajiban ingkang kedah katindakaken dening siswa purnama punika kalebet gawat tuwin awrat, nanging luhur tuwin suci. Para siswa purnama ingkang sami ngayahi kuwajiban wau badhe nampi sih nugrahaning Gusti, tinuntun saha ingayoman dening Sang Guru Sejati. Awit saking punika, miturut Pakdhe Narto, dados siswa purnama punika kedah lulusan saking sekolahan KKKP tuwin nggadhahi titel TPTP"
+
+Sadherek Jatmika:
+"Bapak, kaparenga kula sumela nyuwun priksa, kula kok dereng nate mireng bilih wonten sekolahan KKKP tuwin titel TPTP. Punapa punika sekolahan model anyar ingkang nembe kadhapuk? Sekolahan KKKP punika mulangaken ilmu punapa?"
+
+Bapak Pangrasa:
+"Tembung sekolahan wau namung istilah utawi sanepa. Dene KKKP punika cekakan saking tembung: Kemampuan, Keikhlasan, Kesabaran, Pengorbanan. Dene titel TPTP punika ingkang dipunkersakaken Pakdhe Narto: Tanpa Pameksa, Tanpa Pamrih. Dene terangipun, dados siswa purnama punika kedah mangertos utawi saged (mampu) nyebaraken pepadhang, inggih dhawuhing Sang Guru Sejati. Tumindakipun nyebar pepadhang wau kedah adhedhasar keikhlasan, kesabaran, pengorbanan, boten kanthi pameksa tuwin tanpa pamrih punapa kemawon."
+
+Sadherek Jatmika kanthi gumujeng matur:
+"We, lha dalah, kula terjebak istilahipun Pakdhe Narto. Kajawi sa king punika Bapak, kaparenga kula nyuwun priksa, manawi wonten warga/ calon siswa ingkang sampun dangu kagembleng kagulawenthah, nanging meksa mbandel utawi nylelek, ndhatengi bawa raos kemawon  boten tamtu, katingal anggimipun lelamisan. Punika lajeng kados pundi sikap utawi tanduk kita para siswa purnama utawi pengurus dhateng sadherek warga ingkang kados makaten wau? ..
+
+Bapak Pangrasa:
+.. Nak Jatmika, manawi wonten warga/calon siswa ingkang kados makaten wau, satemenipun inggih memelas sanget. Punika satunggaling bukti, bilih jiwanipun dereng kabikak (dereng tangi), taksih linimputan ing pepeteng, sanadyan sampun dipunsoroti pepadhang, meksa boten purun ngelekaken mripatipun. Nanging sanadyan makaten, para siswa purnama utawi pengurus inggih kedah ngegungaken pangaksama kanthi boten ngewahi tandang tanduk pasadherekan suci dhumateng para sadherek ingkang kados makaten wau, kanthi ngucap salebeting bates: Sami andum basuki kemawon! Nak Jatmika, kula aturi ngengeti bilih wiji ingkang kasebar dening sadherek tani punika wonten ingkang saged thukul ugi wonten ingkang boten saged thukul. Ingkang saged thukul punika wiji ingkang dhumawah ing siti ingkang loh, dene ingkang boten saged thukul wau wiji ingkang dhumawah ing lumpur, padhas, utawi sela.11
+
+Sadherek Jatmika:
+11Sadaya dhawuhipun Bapak adamel enggaring manah tuwin badhe kula estokaken. Ing sapunika kula saged nekseni leresipun sarat-sarat ingkang kedah dinarbe dening para siswa purnama, kados dhawuhipun Pakdhe Narto ingkang mawi istilah utawi sanepa, bilih para siswa purnama punika kedah wedalan saking sekolahan KKKP. Inggih waleh-waleh punapa Bapak, kula asring kadunungan raos gela utawi anyel, manawi nyumerepi sawatawis sadherek warga/calon siswa ingkang sami katingal mbandel utawi nylelek punika, saha boten temen ing prasetyanipun ndhatengi bawa raos. Ingkang makaten wau ateges kesabaran, keikhlasan kula kirang. Wiwit ing dinten punika kula badhe mbudidaya supados kula anggadhahi watak sabar tanggon ...
+
+Sadherek Sri Rejeki sumambet:
+11Mas, Mas, satemene aku iya sok kadunungan rasa kaya mangkono mau, yaiku rasa gela lan anyel cinampur rasa. kaya ngondhok-ondhok yen  meruhi ana sedulur warga/calon siswa kang katon anggone lelamisan lan ora netepi prasetya suci. Nanging bareng aku krungu dhawuhe Bapak iki mau, rasaning atiku banjur krasa ludhang lan isis. Mula, ayo Mas, wiwit ing dina iki padha bebarengan nyampurnakake pangudi supaya bisa ndarbemi watak rila legawa kanthi kasabaran kang wutuh, supaya bisa ngayahi kuwajibaning siswa purnama kanthi sampurna. 11
+
+Sadherek Jatmika kanthi mesem nanggapi pangajakipun ingkang rayi:
+111ya Jeng, ayo padha bebarengan •ngrasuk busana• Panca Sila supaya kita bisa nindakake kuwajibaning siswa purnama kanthi sampurna. II
+
+Bapak Pangrasa:
+11Kanthi sukarenaning manah kula mirengaken prasetyanipun putra sekaliyan, mugi-mugi kemawon putra sekaliyan saged ngayahi kuwajiban ingkang luhur tuwin suci wau, awit saking sih, tuntunan, pepadhang, tuwin pangayomanipun Sang Guru Sejati. Satuhu. Putra kula sekaliyan, kados sampun cekap anggen kula ngaturi sesuluh ingkang ngengingi dhawuh-dhawuh wejanganipun Sang Guru Sejati utawi ular-ular kangge ngayahi kuwajibaning siswa purnama. Minangka kangge panutup bawa raos alit-alitan punika lan minangka kangge tambahing panothoking kori Taman Kamulyan Langgeng badhe kula waosaken saperangan saking wejanganipun Pakdhe Narto ingkang katujokaken dhateng putra wayahipun ingkang cinathet ing serat Warisan Langgeng sinawung sekar Dhandhanggendhis. Cobi putra sekaliyan kula aturi midhangetaken.11
+
+Bapak Pangrasa lajeng ngidung Dhandhanggendhis makaten.
+1. 11Piyarsakna anak putu mami,
+lamun sira nggayuh kasunyatan,
+ora gampang sayektine,
+datan kena den awur,
+lan tan kena tinebus dhuwit,
+ndedonga tapa brata,
+marang pucuk gunung,
+aninggal tatanan praja,
+nyunggi kitab umak-umik turut margi,
+amimba pra oliya.
+
+2. Dedalane kang den ambah kaki,
+tarlen saking padha angestokna,
+Guru Sejati dhawuhe,
+wejangan kang wus kasbut,
+Hastha Sila ingkang jinarwi,
+tetep eling pracaya,
+katri amituhu,
+mring Allah Kang Maha Tunggal,
+kang jumeneng jroning ati kang sinuci,
+sinebut Tripurusa.
+
+3. Atinira kumbahen kang suci,
+klawan tirta sari Panca Sila,
+winantu tapa bratane,
+ameper hawa nafsu,
+kang tumuju tindak tan yekti,
+ing tekad den santosa,
+kababaring laku,
+anindakna budi darma,
+welas asih marang sagunging dumadi,
+angurbana pangrasa.
+
+4. Jroning meleng manembah mring Wlddi,
+dikarasa nembus ndoning rahsa,
+telenging sanubarine,
+ing kono unggyanipun,
+kang manembah sinembah yekti,
+nanging aywa nggegantha,
+marang sipatipun,
+Pangeran Kang Maha Esa,
+tan lyan amung mangajab sihing Hyang Widdi,
+muga paring nugraha.
+
+5. Uripira neng donya tan lami,
+upamane angger menyang pasar,
+tan lana neng pasar bae,
+tan wande lamun mantuk,
+mring sangkane wismane nguni,
+ing mengko aywa samar,
+yekti sira tan mantuk wismanya nguni,
+temah sasar keblasar.
+
+6. Lamun angger sira tekeng janji,
+aywa pegat angger dikirira,
+ingkang sareh pranatane,
+napas ngucap Allah Hu,
+Hu binareng napas umanjing,
+Allah napas umedal,
+kang santosa tuhu,
+jro lelaku keh panggodha,
+poma-poma angger aywa den tanggapi,
+kang ikhlas ninggal donya.
+
+7. Rasanira kumpulna sawiji,
+isi eling marang Allah-ira,
+poma ywa mandheg tumoleh,
+anyuwuna pitulung,
+mring Panutanira Sejati,
+sinebut Nur Muhammad,
+Utusan Hyang Agung,
+muga karsa nuntun sira,
+umareg ing ngayunan Hyang Mahasuci,
+ywa wudhar elingira.
+
+8. Adhuh angger anak putu mami,
+ingsun datan bangkit ninggalana,
+arta lan raja-branane,
+duwekku mung pitutur,
+ingkang luwih ajinireki,
+lan kabeh bandha donya,
+kang gumelar iku,
+poma padha den estokna,
+piwelingku ywa ninggal dalan utami,
+mrih kinanthi raharja."
+
+Sadherek Jatmika:
+
+11Adhuh, Bapak, salebetipun kula mirengaken pangidungipun Bapak punika wau, raosing manah kula kekalih trenyuh sanget ngantos putra kekalih boten saged mbendung wedaling luh. Yektos, wejanganipun Pakdhe Narto punika wau ajinipun ngungkuli rajabrana ingkang gumelar ing donya punika. Makaten wau tumrap para ingkang sami kapengin lumebet ing Taman Kamulyan Langgeng, nanging tumrap pun cubluk ingkang mbeguguk ngutha waton, katampi remeh tuwin boten wonten ginanipun.
+
+Bapak, rehning sam pun sawatawis dangu anggen kula kekalih umarek ing ngarsanipun Bapak, kaparenga putra kekalih nyuwun lumengser. .. Wasana Sadherek Jatmika lajeng gentos-gentos sumungkem ing padanipun Bapak Pangrasa kanthi muwun senggruk-senggruk, labet trenyuhing penggalih saha raos awrat badhe nilar Bapa pepundhenipun. Bapak Pangrasa kanthi ngelus-elus pundhakipun ingkang putra sekaliyan paring pangandika:
+
+.. Kula ndherekaken sugeng konduripun putra sekaliyan kanthi pamuji, mugi-mugi putra sekaliyan sami nyandhung sekar cepaka mulya sawakul. ..
+
+.. Nuwun, nuwun, .. makaten aturipun Sadherek Jatmika sekaliyan. Tamat
+
+
+```{contents}
+
+```

@@ -675,3 +675,8 @@ g. R. Ay. Soedjarwo. <br/>
 
 2. Suwargi Bapak RADEN TRIHARDONO SOEMODIHARDJO, nalika sugengipun nate ngasta padamelan wonten Jawatan Kereta Api (Staats Spoorwegen), wonten Kantor Tilpun, wonten Percetakan, wonten Mahkamah Islam Tinggi Surakarta, tuwin wonten Korps Pemeliharaan Rohani A.D. ing Bandung. 
 Miyos tanggal 10 Agustus 1891 Masehi, seda tanggal 26 September 1958, kasarekaken ing makam Bonoloyo, Surakarta. Tilar putra satunggal kakung, i.p. R. Ilwan SH.
+
+
+```{contents}
+
+```

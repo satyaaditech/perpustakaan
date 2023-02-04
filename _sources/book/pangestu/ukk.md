@@ -738,3 +738,7 @@ Tidak ada jawaban satu pun yang terdengar. Rupa-rupanya pengertian telah menyusu
 Kelana menundukkan kepala dan memohon maaf kepada Sang Bijaksana bahwa ia sebagai seorang Siswa yang muda berani menjelaskan hal-hal yang masih di dalam Wewenang Sang Suksma Sejati. Pasti ia melanggar darmanya di dalam memperluas Pepadang dari Sang Suksma Sejati. la memandang wajah yang berseri-seri dari keenam orang pemuda harapan bangsa itu, dan melihat bahwa satu demi satu dari mereka menerima katakata yang diuraikan tadi sebagai barang permata yang sangat berharga. Kelana merasa takut lagi terhadap Sang Suksma Sejati. Karena itu ia berlindung di dalam Pangkuan Sang Suksma Sejati.
 
 Sementara itu jiwa Kelana diam seperti berhenti hidup. Hanya denyutan jantung melangsungkan panembahnya.
+
+```{contents}
+
+```
