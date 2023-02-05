@@ -914,7 +914,7 @@ Benar atau tidak peringatan itu?
 **Saudara Sudibya:**\
 Yah, yah, huh, eh, mungkin benar!
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Jangan mungkin begitu. Benar atau tidak?
 
 **Saudara Sudibya:**\
@@ -984,7 +984,7 @@ Saya akan berusaha sedapat mungkin untuk menepati nasihat-nasihat Kakang bilaman
 
 Siapa yang mendekat kepada manusia yang bertunggal dengan Sang Suksma Sejati, senyatanya telah berdekatan dengan Sang Suksma Sejati. Apakah hal ini terjadi di zaman dahulu, atau zaman sekarang atau zaman nanti yang akan datang, itu bukan soal, dan sama saja.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Ya, memang saya juga mengerti hal itu, tetapi bila dekat Pakde itu, saya merasa nikmat sekali dan semua persoalan seolah-olah tidak ada. Di dalam keadaan yang demikian itu seakan-akan kita tidak perlu manembah lagi, mungkin karena kita telah berada di dalam suasana panembah. Saya akui bahwa itu keliru, dan bahwa tiap manusia wajib manembah di dalam keadaan apapun, tetapi ya itu saya sering lupa mempergunakan kesempatan manembah di muka Pakde.
 
 **Saudara Sudibya:**\
@@ -1062,7 +1062,7 @@ Tentu boleh, tetapi mengutipnya harus cermat dan teliti. Apa-apa yang tercantum 
 **Saudara Sudibya:**\
 Mungkin, mereka sudah puas dengan sebagian persen.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Iha, anak ini.
 
 **Saudara Sudibya:**\
@@ -1078,7 +1078,7 @@ Nyatakan dengan tegas dan tanpa ragu-ragu bahwa tidak pernah ada pengumuman tent
 
 Pokoknya, kita memakai istilah yang disabdakan oleh Sang Suksma Sejati. Lagi pula pelajaran dari Sang Suksma Sejati itu bukan agama. Jadi adik-adikku perlu menjelaskan arti istilah Sang Suksma Sejati dan Sang Suksma Kawekas dan lain-lain istilah yang perlu mendapat penjelasan. Harus ditambah bahwa para pendengar calon anggota boleh terus memakai istilahnya sendiri-sendiri yang sesuai dengan agamanya masing-masing. Malahan pelajaran Sang Suksma Sejati menganjurkan supaya tiap-tiap calon anggota memperdalam agamanya sendiri.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Lantas seterusnya bagaimana?
 
 **Saudara Kelana:**\
@@ -1102,13 +1102,13 @@ Wah, kok ya berat, ya. Harus baca banyak, nih!
 **Saudara Kelana:**\
 Sama sekali tidak berat. Syarat-syarat yang harus dipenuhi hanya tekad yang bulat untuk taat pada sabda Sang Pepadang. Tentu, kita harus sedikit-sedikit membaca, tetapi lain-lainnya itu tanggungan yang memberikan perintah. Pengetahuan, kebijaksanaan, kelancaran, dan berbicara dijamin oleh Sang Sasangka Jati asal Saudara mau membuka mulut dan mengeluarkan suara saja.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Betul itu?
 
 **Saudara Kelana:**\
 Betul! Banyak siswa purnama yang telah menyatakan kebenaran itu.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Ya deh! Kalau begitu, kami sanggup semua.
 
 **Saudara Sasangka:**\
@@ -1119,7 +1119,7 @@ Pada tingkatan ini perlu diterangkan tentang terjadinya unsur-unsur dan dunia ra
 
 Paugeran yang kukatakan tadi menjadi terbungkus oleh perasaan yang lebih kasar. Perasaan berada di dalam badan jasmani itu membawa perasaan nikmat yang kasar. Oleh sebab itu, kesadaran yang halus-halus tidak terasakan lagi atau terlupakan. Pokok soalnya dalam pelajaran Sang Suksma Sejati ialah mengembalikan rasa halus kesadaran Tripurusa tadi.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Itu dia!
 Semua hadirin tertawa karena suasana gembira ini, ketegangan menjadi lepas.
 
@@ -1157,7 +1157,7 @@ Dengan demikian tiap manusia mempunyai tugas ke luar dan ke dalam, dan pepadang 
 **Saudara Sudibya:**\
 Tuuh! Apa yang kukatakan? Siapa yang bilang, Pelajaran dari Sang Suksma Sejati hanya untuk tuntunan kalau mati saja, atau untuk alam baka?
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Tidak ada yang bilang. Umum yang hanya mengetahui tugas ke luar saja, mengira Pangestu menunjukkan jalan ke dalam semata-mata.
 Lain-lainnya sambil tersenyum Tuuh!
 Saudara Sudibya tertawa sambil mengambil gelasnya:
@@ -1166,7 +1166,7 @@ Minum, minum!
 **Saudara Kelana:**\
 Tugas ke luar dan ke dalam ini jangan lupa ditekankan karena persoalan ini akan senantiasa muncul sepanjang jalan kesiswaan, misalnya dalam menghadapi percobaan-percobaan dan dalam panembah. Tugas ke luar membawa daya tarik ke luar dan tugas ke dalam membutuhkan dibangkitkannya arus kekuatan ke dalam. Inilah yang bertentangan.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Termasuk daya tarik betis kuning.
 
 **Saudara Kelana:**\
@@ -1218,7 +1218,7 @@ Dan saudara-saudara dapat mulai menerangkan sendi-sendi dari pedoman hidup Panca
 
 Budi pekerti yang baik adalah inti sari dari agama yang berasal dari Tuhan. Dan intisari dari agama Islam dan Kristen tidak menyimpang dari Panca Sila ini.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 O, sekarang saya sedikit mengerti. Apabila kita kingin menjalankan tugas di dunia ini tanpa terikat oleh keadaan dunia, kita harus mendekat dan bertunggal dengan Sang Suksma Sejati, karena Sang Suksma Sejati adalah daya yang mengatur semesta raya ini tanpa terikat olehnya. Kira-kira begitu, ya, Kang?
 
 **Saudara Kelana:**\
@@ -1271,7 +1271,7 @@ Kapan kita dapat sowan Bapak Pangrasa? Apakah harus minta belet (persetujuan) du
 **Saudara Kelana:**\
 O, tidak. Tidak perlu ada belet. Tiap waktu Saudara dapat datang.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Kukira melalui gunung-gunung itu agak sukar. Apakah ada jalannya, Kang?
 
 **Saudara Kelana:**\
@@ -1285,7 +1285,7 @@ Lembah itu begitu menyenangkan hati orang, sehingga sering dilupakan untuk terus
 
 Orang tidak dapat menepati janji tentang waktu itu, kalau tidak dijemput oleh Bapak Pangrasa sendiri. Dan siapa yang dijemput itu, manusia tidak dapat mengetahui terlebih dahulu.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Kang Kelana sudah pernah ke Dana Warih menghadap Bapak Pangrasa?
 
 **Saudara Kelana:**\
@@ -1363,7 +1363,7 @@ Mereka memungkiri perjanjian agung. Mereka tersesat jalannya, karena pada mereka
 Apa yang dikatakan oleh Dik Sasangka itu benar sekali. Para dewa memberikan pelajaran tentang kekuatan-kekuatan yang dikandung di dalam unsur-unsur, sedangkan Sang Suksma Sejati memberikan pepadang tentang hidup yang sejati yang di atasnya semua unsur.
 Menurut pepadang dari Sang Suksma Sejati unsur-unsur itu adalah hanya kancah saja dari Hidup yang Sejati.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Wah, adanya para dewa ini menyulitkan manusia, banyak manusia yang terjebak karenanya.
 
 **Saudara Kelana:**\
@@ -1374,13 +1374,13 @@ Kita harus memandang soal itu dari sudut lain, yakni dari segi pelajaran bagi um
 -	Orang lebih mudah mengenal jalan lurus dengan adanya jalan-jalan simpangan.
 Dengan adanya para dewa, manusia yang benar-benar ingin menyiswa kepada Sang Suksma Sejati akan lebih berhati-hati supaya jangan terjebak oleh para dewa.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Eh mahabijaksana benar Sang Suksma Kawekas, ya Kang. Akan tetapi soalnya bagiku ialah bagaimana saya mengetahui bahwa nalar-pikiranku ini sesuai dengan pepadang dari Sang Suksma Sejati. Persoalan ini kukemukakan karena kita sekalian harus dan akan menaburkan pepadang pelajaran dari Sang Suksma Sejati. Dan para pendengar calon anggota pintar sekali mengajukan pertanyaan-pertanyaan yang membikin saya ngundang kaum. Bagaimana mengetahuinya, apakah penjelasan-penjelasan itu tepat atau ngawur.
 
 **Saudara Kelana:**\
 Memang itu sukar untuk menelitinya sendiri. Satu-satunya jalan ialah memperoleh kebijaksanaan dari Sang Suksma Sejati dan kebijaksanaan ini adalah hasil dari sadar atau eling. Untuk memperdalam sadar, kita harus senantiasa menjalankan panembah, supaya panembahnya dapat sampai ke keadaan heneng-hening, kita harus dengan teliti menjalankan PANCA SILA.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Pelaksanaan dari Panca Sila adalah Jalan Rahayu dengan lain istilah Panca Dharma Bakti.
 
 **Saudara Sudibya:**\
@@ -1389,10 +1389,10 @@ Dalam Jalan Rahayu termasuk budi darma dan tapa brata.
 **Saudara Wijaya:**\
 Kesemuanya itu berdasarkan paugeran Sang Suksma Kawekas kepada Umat-Nya.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Iya, ya!, Jadi semua mempunyai hubungan satu sama lain. Lebih terang sekarang bagiku pepadang pelajaran dari Sang Suksma Sejati  adalah tuntunan untuk bimbingan dan pengolahan jiwa.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Ini dinyatakan oleh Pak De Narto dalam Kongres Istimewa yang baru lalu bahwa Pangestu adalah Fakultas Psikologi. Dalam Fakultas Psikologi para mahasiswa harus mempelajari dan memperbaiki jiwa, terutama jiwanya sendiri.
 
 Alat utama untuk memperbaiki jiwa adalah watak, bukan kepandaian. Daya guna kepandaian hanya sampai mengetahui saja, tetapi kekuatan untuk mengubah apa yang diketahui salah adalah watak.
@@ -1413,7 +1413,7 @@ Pepadang pelajaran dari Sang Suksma Sejati yang diterima Pak De Narto memberikan
 
 Di zaman yang lampau memang telah berkali-kali diperingatkan kepada umat manusia bahwa ada dua jalan yang mirip satu sama yang lain, dan oelh karena itu manusia harus berhati-hati. Akan tetapi, apakah gejala-gejalanya perbedaan, belum diberikan secara terbuka.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Aduh, kalau begitu memang gawat benar jalan yang menuju ke Alam Sejati itu. Pengetahuan tentang perbedaan yang dimaksud Kang Kelana itu akan menyelamatkan beribu-ribu, bahkan berjuta-juta manusia dalam mencari Sang Suksma Sejati.
 
 **Saudara Kelana:**\
@@ -1437,10 +1437,10 @@ Kang Kelana, apakah sebenarnya tugas dari Sang Suksma Sejati itu tidak lebih ban
 **Saudara Kelana:**\
 Memang benar apa yang dikemukakan oleh Dik Sasangka. Akan tetapi, ketahuilah, adik-adikku sekalian bahwa di dalam sabda tanggal 21 April 1959 tersebut, ditetapkan oleh Sang Suksma sejati bahwa Pak De Narto adalah wakil dari Sang Suksma Sejati dan para siswa adalah wakil dari Pak De Narto. Dalam kelima tugas yang kukatakan tadi itulah Pak De Narto mewakili Sang Suksma Sejati.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Aduh! Tentunya wakil itu mendapat mandate penuh dari yang diwakili-Nya. Kejadian semacam ini tidak dijumpai di setiap abad, mungkin tidak dalam seribu tahun. Apalagi tidak di setiap tempat.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Ya, kalau kita mau sejenak merenungkan hal itu, kita tentu meraba bahwa kejadian-kejadian dengan dirinya Pakde Narto itu merupakan peristiwa-peristiwa yang sangat luar biasa, bahkan peristiwa yang agung dan mulia. Ditambah lagi dengan anugerah yang besar bahwa kita boleh mengalami zaman kencana dan berkenalan dengan Pakde Narto, hidup bersama-sama Pakde Narto, mendengarkan sabda dari Sang Suksma Sejati melalui Pakde Narto.
 
 **Saudara Kelana:**\
@@ -1493,13 +1493,13 @@ Ah, bukan ahli. Saya dengar penjelasan demikian dari yang pernah membaca buku-bu
 **Saudara Kelana:**\
 Para calon siswa perlu mengetahui adanya tuntunan yang kadang-kadang mirip dengan pepadang pelajaran dari Sang Suksma Sejati. Tuntunan dari para dewa itu tempo-tempo tampaknya benar, tetapi sesungguhnya belum benar, karena sumbernya pada hakikatnya tidak benar, walaupun di sana-sini mengandung fakta-fakta yang benar.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Yang benar aja dong, Kang! Saya mulai pusing!
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Nah, itu baru mendengarkan cerita tentang ajaran dewa saja sudah pusing. Apalagi kalau betul-betul mendapat tiupan dari mereka sendiri, kontan akan sinting.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Mudah-mudahan jangan sampai di situ. Sadar, percaya, dan taat kepada Sang Suksma Sejati akan menghindarkan para umat dari jalan yang sesat.
 
 **Saudara Kelana:**\
@@ -1540,13 +1540,13 @@ Watak-watak tersebut dikenal sehari-hari dalam kehidupan khalayak ramai daripada
 
 Apakah kita telah memaklumi benar-benar arti watak-watak sabar, narima, jujur, rela, dan budi luhur itu?
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Wah, buktinya ya mudah sekali. Kekurangan itu kita insafi sendiri setiap waktu. Persoalan-persoalan selalu timbul tanpa henti-hentinya. Persoalan-persoalan itulah menjadi bukti bahwa sifat-sifat Panca Sila itu belum lagi kita miliki, sebab bila kita sudah sabar, narima, jujur, rela, dan budi luhur, persoalan-persoalan yang bermacam-macam itu tidak ada.
 
 **Saudara Sasangka:**\
 Selain apa yang dikatakan oleh Dik Sarjana itu, tempo-tempo kita sendiri ragu-ragu, apakah perbuatan kita itu sudah benar atau belum, apakah sudah sesuai dengan Panca Sila atau tidak. Nah, keragu-raguan dan ketidakadilan ini adalah suatu gejala bahwa watak kita masih jauh dari Panca Sila.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Ah, saya kok tidak mengerti pandangan dari Dik Sasangka itu. Ragu-ragu tentang perbuatannya sendiri kan tidak ada sangkut pautnya dengan watak sabar, narima, jujur, rela, dan budi luhur. Paling-paling ragu-ragu itu menunjukkan bahwa kita masih kurang mengerti tentang pokok persoalan yang dihadapi. Coba, penjelasan Sasangka bagaimana.
 
 **Saudara Sasangka:**\
@@ -1625,12 +1625,14 @@ Perhatian tertarik lagi pada dunia, tetapi para pemuda untuk sementara waktu mas
 **Saudara Kelana:**\
 “Setelah dimengerti benar-benar bahwa Tripurusa itu inti sari dari manusia yang sejati, manusia harus berusaha sekeras-kerasnya untuk menyadarinya. Bila kita belum dapat menyadari Tripurusa sepenuhnya, dan pasti tempo-tempo akan memungkinkan kita untuk menyadarinya sebagian.”
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Uraian Kang Kelana itu baik, tetapi terus terang saja, saya tidak mengerti betul, apa yang menjadi pegangan untuk mendekatkan diri kepada Sang Suksma Sejati. Pertanyaanku ini kudasarkan pada pengalaman.
 
 Pertama: kita tidak boleh membayangkan Sang Suksma Sejati dan,
 Kedua: Apakah cirinya bahwa kita telah dekat pada Sang Suksma Sejati yang tidak boleh dibayangkan itu.:
-Saudara Sarjana:
+
+
+**Saudara Sarjana:**\
 “Eh, itu betul. Memang itu sudah mau kutanyakan.”
 
 **Saudara Kelana:**\
@@ -1731,7 +1733,7 @@ Orang yang jiwanya mulai terganggu, selalu memikirkan persoalan diri sendiri. Ia
 
 Maka dari itu, budi darma mengandung daya higiene jiwa yang besar. Higiene adalah segala sesuatu usaha untuk mencegah datangnya penyakit. Yang mengenai jiwa, usaha untuk mencegah datangnya penyakit ialah cara hidup yang telah digariskan oleh Sang Suksma Sejati dan pelaksanaannya dicontohkan oleh Pak De Narto.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Kalau begitu, kami sekalian ini membutuhkan penjelasan lebih lanjut tentang budi darma. Tadi dikatakan oleh Kang Kelana bahwa budi darma itu tidak boleh didampingi pamrih. Di dalam budi darma kita merasa sudah tidak mempunyai pamrih, tetapi kemudian ternyata toh masih ada pamrih. Itu bagaimana duduk perkaranya.
 
 **Saudara Kelana:**\
@@ -1744,7 +1746,7 @@ Selama kita menyiswa kepada Sang Suksma Sejati, dan makin lama makin mendalam me
 Bilamana kita sudah bisa menyadari lapisan dalam dari jiwa kita, kita akan dapat mengetahui pikiran, perasaan, dan nafsu yang halus yang kurang baik yang baru muncul.
 Dengan demikian kita dapat memberantasnya dengan cepat dan mencegahnya, sebelum keadaan kurang baik itu menular dan merata ke seluruh jiwa kita. Soal ini menjadi praktis dalam menjalankan panembah, supaya kita lekas dapat membersihkan hati kita dari kotoran-kotoran yang akan mengeruhkan panembah.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Kalau begitu, budi darma ini ada sangkut-pautnya dengan panembah?
 
 **Saudara Kelana:**\
@@ -1773,7 +1775,7 @@ Budi darma harus disesuaikan dengan kebutuhan yang ditolong dan jangan melampaui
 
 Menurut tuntunan Sang Suksma Sejati, tidak ada seorang pun di dunia ini yang bebas dari pemberian budi darma dan tidak seorangpun yang bebas dari penerimaan budi darma dari orang lain. Hidup ini tunggal dan harus diselenggarakan secara gotong royong.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Akan tetapi, Kang, tadi Kang kelana mengatakan bahwa budi darma itu harus menurut kekuatan sendiri. Ukuran menurut kekuatan sendiri itu yang amat pelik, sebab yang menjadi pedoman hanya perasaanya dan anggapannya sendiri saja.
 
 **Saudara Kelana:**\
@@ -1789,7 +1791,7 @@ Bila kepercayaan kita terhadap Sang Suksma Sejati itu kurang murni, tidak akan a
 
 Maka dari itu, kita harus melatih diri dalam budi darma untuk control kita sendiri, mula-mula dengan dituntun oleh aturan-aturan, dan harapan-harapan yang lambat laun aturan-aturan dan harapan-harapan itu harus dihapuskan untuk mencapai tingkatan budi darma yang murni, sesuai kehendak Sang Suksma Sejati, seperti yang tercantum di dlam buku Sasangka Jati bagian Jalan Rahayu, bam Budi Darma.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Akan tetapi, bagaimana ya, Kang, acap kali saya berniat menjalankan budi darma, tiap kali niat yang bagus itu menjadi urung, atau pelaksanaan budi darma menjadi setengah-setengah, yang kemudian menimbulkan rasa kurang puas di dalam diriku sendiri.
 Saya kecewa akan diriku sendiri. Dan mengenai panembah yang tempo hari kita bicarakan bersama-sama, sering kali panembah menjadi “oglangan”, karena pada saat mau manembah, badan merasa “aras-arasen” atau hal-hal lain terasakan begitu penting dan akut, sehingga menggeserkan panembah. Hasilnya hanya kecewa lagi. Melawan diri pribadi rupa-rupanya soal yang paling sulit, lebih sulit dari pada melawan orang yang sangat dicintainya”
 
@@ -1821,7 +1823,7 @@ Tanpa sifat jujur dan tanpa tekad untuk meneliti kekurangan-kekurangan diri send
 
 Tapa brata dimaksudkan untuk memudahkan perubahan watak yang sangat dibutuhkan itu. Tapa brata ialah mengurang-ngurangi kenikmatan badan jasmani yang dicapai dengan jalan makan, minum, tidur, sahwat, malas-malas-malasan, dan lain sebagainya. Cara mengurang-ngurangi kenikmatan dapat dilalui menurut seribu satu jalan, yang disesuaikan dengan keadaan badan, keadaan masyarakat, dan keadaan alam.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Kalau begitu, tapa brata itu belum merupakan usaha terakhir dalam memperoleh tuntunan dari Sang Suksma Sejati.
 
 Kutanyakan ini, karena setengah orang mengira bahwa barang siapa menjalankan tapa brata lebih banyak daripada orang lain, dialah yang akan menerima lebih banyak sih dari Sang Suksma Sejati.
@@ -1874,7 +1876,7 @@ Bilamana kita makan sehari-hari, kita sebaiknya menuruti pendapat ilmu pengetahu
 
 Tapa brata menurut kebijaksanaan Sang Guru Sejati menyehatkan jiwa dan raga, dan mencegahnya jangan sampai jatuh sakit. Dan lagi, banyak dokter menjalankan tapa brata menurut pepadang pelajaran Sang Suksma Sejati.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Bila kusimpulkan, apa yang hingga kini telah kita bicarakan bersama-sama tentang jalan yang praktis untuk memiliki sifat-sifat Panca Sila, terdapat 4 (empat) pokok yang harus dijalankan sehari-hari dengan kesungguhan hati:
 
 1.	Paugeran Suksma Kawekas kepada umat-Nya
@@ -1891,10 +1893,10 @@ Soal budi luhur ini sukar dibicarakan dan dimengerti, karena tingkatan kejiwaan 
 Kita semua yang ada di sini belum sampai ke situ. Bagaimana orang dapat membicarakan sesuatu yang masih di atasnya, bila ia belum pernah menginjak bidangnya.
 
 Apabila kita membicarakan soal ini, lebih baik kita berpangkal pada pokok-pokok yang telah diberikan oleh Sang Suksma Sejati di dalam buku Sasangka Jati.
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Akan tetapi, bagaimana dibolak-baliknya soal budi luhur itu, apalagi dibicarakannya, untuk mengertinya saja sudah sukar. Untuk membicarakan sesuatu, kita harus mengerti terlebih dahulu.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Habis bagaimana, apa tidak dipersoalkan? Kan kita harus mengupasnya, walaupun dengan banyak kekurangan. Lebih baik kita sekarang mempersoalkan bersama daripada nanti pada suatu ketika ada pertanyaan-pertanyaan yang tidak dapat dijawab.
 Sebelum kita terjun ke dalam kancah penaburan pepadang, kita harus sedapat mungkin mempersiapkan diri.
 
@@ -1937,7 +1939,7 @@ Kurasa ini tadi sudah lebih dari cukup, Bagaimanapun akan diterangkannya tentang
 Sekedar pengetahuan cukup sebagai batu loncatan, jangan terus menerus menambah pengertian dengan menunda-nunda dimulainya tindakan. Bapak Pangrasa di dalam Bawa Raos ing Salebeting Raos bersabda bahwa pangerti1) harus disertai pakarti2) dan ilmu disusul oleh laku 3). Pangerti dan ilmu dengan sendirinya akan bertambah, karena pakarti lan laku.
 1)	Pangerti = pengertian, 2)  pakarti = perbuatan, 3) laku = tindakan/pelaksanaan.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Saya atas nama saudara-saudara di sini semua mengucapkan banyak terima kasih atas uraian Kang Kelana tentang budi luhur. Memang, kami sekalian tidak menganggap dan mengerti, dan dalam penyiswaan kepada Sang Suksma Sejati kami tidak akan menuntut, supaya selalu dimengerti. Kami sadar dan insaf bahwa ada saat-saat bahwa pengertian manusia harus dikorbankan guna membulatkan ketaatan dan kepercayaan kepada Sang Suksma Sejati. Yang kumaksud, misalnya, bahwa ada kalanya manusia merana tertimpa nasib malang tanpa mengerti, apakah dosa-dosa kita. Di situlah kita harus mengalahkan pengertian kita guna meninggikan nilai ketaatan dan kepercayaan.
 
 **Saudara Kelana:**\
@@ -1949,7 +1951,7 @@ Terima kasih kembali, Dik Sarjana dan adik-adikku sekalian. Mari kita akhiri mal
 
 “Pada suatu malam yang telah ditentukan untuk bertemu bersama-sama di rumah Saudara Kelana guna berolah rasa kecil-kecilan, Saudara Sarjana bertanya kepada Kang Kelana
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Kang Kelana, apa oleh-olehnya dari Dana Warih pada waktu Kakang sowan Pakde Narto pada hari ulang tahunnya yang baru lalu? Apakah ada hal-hal yang istimewa?
 
 **Saudara Kelana:**\
@@ -1987,10 +1989,10 @@ Adapun apa yang dulu-dulu kukatakan tentang dirinya Pakde Narto tentang perwakil
 **Saudara Sasangka:**\
 Sebenarnya, apa yang diuraikan Kakang ini, terus terang saja, terlalu tinggi bagi kami sekalian. Sekalipun kami diceritakan dan ditunjukkan ini dan itu, pengertian kami, kesadaran kami, pancaindra kami, belum dapat menangkapnya. Akan tetapi bagaimanapun, karena itu pesan dari Pakde Narto, kami akan mengindahkannya.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Perkara benar-tidaknya diagnosis itu tadi, itu bukan soal kami. Soal kami adalah menyiswa kepada Sang Suksma Sejati, dan pupung Pakde Narto masih hidup, kami menuruti Pakde Narto. Pakde masih merupakan saluran Pepadang yang pertama dan utama dari Sang Suksma Sejati.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Saya kok ingin kenal ahli jiwa itu. Bagaimana ia sampai pada diagnosis itu?
 
 **Saudara Sasangka:**\
@@ -1998,7 +2000,7 @@ Ada dua jalan:
 •	Yang kesatu: menyiswa kepada Sang Suksma Sejati seperti Pakde Narto, dan
 •	Yang kedua: menyelami dengan ilmu jiwa pepadang pelajaran Sang Suksma Sejati, sehingga memperoleh pepadang yang sungguh-sungguh dari Sang Suksma Sejati.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Kang Kelana tadi mengatakan bahwa Mas Ahli Jiwa itu menempuh kedua jalan.
 
 **Saudara Kelana:**\
@@ -2010,10 +2012,10 @@ Ya, tetapi seorang siswa biasa tentu belum dihinggapi kebijaksanaan yang tepat. 
 **Saudara Sasangka:**\
 “Nah, sekarang kita sudah sampai di Solo dan karena lindungan dari Sang Suksma Sejati, kereta api berjalan dengan lancar tidak kurang suatu apa membawa kita semua ke kota Bengawan.”
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 “Menurut surat yang kuterima dari Solo, upacara peringatan ulang tahun ke-64 dari Pakde Narto nanti malam diadakan mulai pukul 20.00 di Wisma Wati, tempat pertemuan kepunyaan salah seorang anggota Pangestu Cabang Solo, Pak Hadisoemarto.”
 
-Saudara Sujana:
+**Saudara Sujana:**\
 “Wah, Pangestu lambat laun mempunyai segala-galanya yang diperlukan, berkat kemurahan dari Sang Suksma Sejati. Saya belum pernah mengalami ikut hadir dalam pertemuan-pertemuan semacam sebentar nanti. Kaya apa nanti, ya?”
 
 **Saudara Sudibya:**\
@@ -2036,7 +2038,7 @@ Semua hadirin duduk di tempat-tempat yang telah disediakan oleh panitia perayaan
 Pukul 20.15 Pakde Narto datang dengan diiringi oleh Ketua Pusat dan Ketua Cabang Pangestu Solo beserta beberapa anggota cabang-cabang lainnya. Semua hadirin berdiri dengan khidmat menyambut kedatangan Pakde Narto, yang sangat dicintainya itu. 
 Keenam pemuda duduk menggerombol bersama-sama Saudara Kelana, yang dijumpainya sebelum dimulainya pertemuan. Saudara Kelana sendiri merasa sangat gembira bahwa ia dapat bertemu dengan teman-teman lama.
 
-Atas pertanyaan Saudara Sujana:
+Atas pertanyaan **Saudara Sujana:**\
 “Kang, selama setahun ini berkeluyuran ke mana saja?”
 
 Saudara Kelana memberikan penjelasan dengan sangat singkat:
@@ -2055,7 +2057,7 @@ Maka dari itu, satu-satunya jalan keluar dari kekacauan negara dan masyarakat ad
 - Menimbulkan suasana atau iklim hidup di dalam masyarakat yang berdaya guna bagi pengabdian kepada Ibu Pertiwi, dan 
 - Memberikan kemungkinan bagi setiap orang untuk mencapai kesadaran yang setinggi-tingginya dan semurni-murninya, yakni bertunggal dengan Sang Suksma Sejati.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 “Tugas, ya tugas, Kang Kelana. Tapi lain kali jangan lama-lama mengembara begitu. Kasihan kita orang ini”
 
 **Saudara Kelana:**\
@@ -2083,7 +2085,7 @@ Perasaan lega dan gembira melanda ruang pertemuan pada waktu kedua oleh-oleh ter
 **Saudara Kelana:**\
 “Kan Pakde Narto tadi telah menambahkan bahwa setiap siswa dapat menjadi sampul “Sasangka Jati” asal saja dipenuhi syarat-syaratnya, asal saja ia berusaha untuk menjadi sampul.”
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 “Pakde tidak menerangkan apakah syarat-syarat itu.”
 
 **Saudara Sasangka:**\
@@ -2100,7 +2102,7 @@ Yang ingin melanjutkan dispensasi berarti harus berusaha untuk meringankan perja
 **Saudara Kelana:**\
 “Saya setuju dengan apa yang dikemukakan Dik Sasangka. Dispensasi itu soal kemurahan dari Sang Suksma Sejati, yang harus dijunjung tinggi oleh para siswa. Karena dispensasi itu, kebahagiaan yang menjadi tujuan dari tiap-tiap manusia akan lebih dekat adanya.”
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Nah, sekarang bahagaimanakah sikap kita terhadap seseorang yang menjadi sebab adanya dispensasi, yang menjadi sebab bahwa penyiswaan kita sangat dipermudah? Apakah kita tidak sangat berterima kasih terhadap “sampul dari Sasangka Jati?
 
 **Saudara Kelana:**\
@@ -2183,7 +2185,7 @@ Nah adik-adikku, sekarang kita menyinggung lambing Pangestu: bunga mawar dan bun
 
 Seseorang yang menjadi kusuma bangsa pasti mempunyai sifat yang cacat, bagaimanapun cemerlang bintang nasibnya. Sebaliknya, cita-cita nan suci bersih murni yang harus dicapai ke dalam jiwa kita sendiri, tidak akan mengecewakan. Seseorang yang mencapai tingkatan jiwa yang setinggi-tingginya, berarti pula ia mencapai kebahagiaan yang kekal abadi, ia mencapai nasib baik yang tidak akan berubah lagi dan tidak akan tergoncang lagi oleh keadaan apa pun di dunia ini.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 E, kalau begitu, anggapanku dulu mengenai nasib manusia baik itu keliru. Dulu kukira bahwa nasib baik itu sama dengan suatu tingkatan sosial ekonomis yang tinggi, dan nasib buruk itu adalah keadaan penderitaan sosial. Akan tetapi sekarang sudah mulai jelas bagiku bahwa yang dulu kuanggap nasib baik itu, dapat pula mengandung penderitaan, misalnya orang yang berkedudukan tinggi, orang kaya, orang yang berkuasa, dapat pula diserang oleh penderitaan batin bermacam-macam dan tidak bebas dari kekecewaan rupa-rupa. Kekayaan, kedudukan, dan kekuasaan belum menjamin kebahagiaan yang kekal dan abadi.
 
 **Saudara Kelana:**\
@@ -2199,7 +2201,7 @@ Sang Suksma Sejati tidak menghendaki umat-Nya menderita papa dan sengsara, sekal
 
 Tuntunan dari Sang Suksma Sejati yang kita terima melalui Pakde Narto membikin jiwa kita kuat dan tetap sentosa, juga bilamana cita-cita kita tentang hal-hal sosial ekonomis tidak tercapai seluruhnya.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Nasib itu bagaimana, Kang? Apakah itu kita tentukan sendiri, ataukah ditentukan oleh Sang Guru Sejati?
 
 **Saudara Kelana:**\
@@ -2249,7 +2251,7 @@ Jadi nasib yang menimpa berbagai bidang dalam kehidupan manusia itu tidak selalu
 
 Ooo, maka dari itu ada kalanya orang yang berpangkat tinggi, meringkuk dalam nasib perasaan yang sedih, atau orang yang kekayaannya melimpah-limpah sedang dalam keadaan nasib pikiran yang kalut atau keinginan-keinginan yang buntu adanya. Variasi dalam hal nasib dapat kita bayangkan sendiri.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Wah, kalau begitu berat dong. Akan tapi, apa boleh buat. Soalnya bukan bagaimana nasib, melainkan bagaimana kita keluar dari nasib yang menekan dan menabur benih nasib yang bahagia. Dan untuk itu kita mempunyai resep yang jitu: Sasangka Jati. Betul nggak? 
  
 ## BAB XII KUNCI PEMBEBASAN
@@ -2258,7 +2260,7 @@ Setelah sementara lama Saudara Kelana tidak bertemu dengan Sasangka dan saudara-
 ****Saudara Kelana:**\**\
 Dasar dari adanya nasib manusia yang berbeda-beda, bahkan tiap-tiap manusia mempunyai nasibnya sendiri-sendiri ialah adanya Hukum abadi dari Tuhan Yang Maha Esa dan adanya kebebasan dari manusia untuk memilih, yang dulu-dulu pernah kukatakan bahwa manusia memiliki suatu otonomi.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Hukum Abadi dari Tuhan Yang Maha Esa itu apa, Kang?
 
 **Saudara Kelana:**\
@@ -2267,7 +2269,7 @@ Menurut pustaka Suci kita Sasangka Jati, hukum abadi itu suatu kekuasaan dari Sa
 **Saudara Sasangka:**\
 Wah, kalau begitu kita sekalian harus berhati-hati sekali. Tanpa disadari kita melanggar hukum abadi tadi dan pada suatu waktu kita menerima hukuman yang kadang-kadang dirasakan berat dan seolah-olah tidak ada sebab-sebab kena apa kita menderita dan harus menderita.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Bagaimana Kang, soal saat kita akan menerima akibat perbuatan kita sendiri itu?
 
 **Saudara Kelana:**\
@@ -2348,7 +2350,7 @@ Sang Suksma Sejati bersabda mengenai soal ini bahwa orang yang bersangkutan itu 
 
 Yang dimaksud dengan sempurna itu ialah bahwa kembalinya Roh Suci ke Suksma Sejati tidak terhenti di tengah jalan, melainkan terus bertunggal dengan-Nya. Ibaratnya pangkuan Suksma Kawekas dan Suksma Sejati itu Sang Patih, maka Roh Suci yang kembali dengan sempurna, masuknya ke dalam pendapa agung menjadi Sang Patih dan bertemu dengan Sang Ratu. Akan tetapi, bilamana kembalinya seseorang ke pangkuan Sang Sang Suksma Sejati itu tidak sempurna adanya maka seolah-olah ia terhenti di salah satu pintu atau di halaman keraton yang bersaf-saf itu, belum masuk ke dalam pendapa agung. Disitu ia sudah merasa bahagia dan tidak menderita lagi sambil menunggu saatnya untuk kembali lagi dalam badan wadag baru.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Apakah syarat-syaratnya, Kang, untuk menentukan apakah kembalinya Roh Suci ke hadirat Suksma Sejati itu sempurna atau tidak sempurna?
 
 **Saudara Kelana:**\
@@ -2359,7 +2361,7 @@ Pada saat manusia di alam kafiruna sadar akan Suksma Sejati, pada saat itu ia le
 **Saudara Sudibya:**\
 Tentu ia memilih terus langsung kembali ke Suksma Sejati karena telah lama menderita dalam alam kafiruna.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Ia lama di alam kafiruna itu justru karena ia segan kembali ke Suksma Sejati, tidak menepati Jalan Rahayu, dan masih ada ikatan dengan dunia yang ramai ini. Ikatan itulah menjadi tanda bahwa ia ingin kembali hidup dalam badan jasmani kasar di alam wadak ini.
 
 **Saudara Wijaya:**\
@@ -2502,7 +2504,7 @@ Kurasa pandangan demikian betul. Panembah mereka dikotori bila mereka menyelewen
 **Saudara Sudibya:**\
 Kiranya pantas untuk didirikan sebuah tugu guna memperingati pengorbanan pegawai negeri beserta keluarganya.
 
-Saudara Sujana:
+**Saudara Sujana:**\
 Lalu apakah tidak perlu lagi menjalankan ibadah menurut tata upacara agamanya masing-masing?
 
 **Saudara Kelana:**\
@@ -2516,7 +2518,7 @@ Seringkali kita sampai jengkel pada pikiran kita sendiri, yang terus rame saja, 
 
 Sampai kita cape bergulat dengan pikiran kita sendiri. Wong maksud baik kok tidak terlaksanakan.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Dalam buka Sasangka Jati tercantum bahwa kita harus eling pada Suksma Sejati diwaktu apa saja, waktu berjalan-jalan, bercakap-cakap, makan, tidur, dan berdiam diri. Bila kita jalankan ini apakah tidak cukup? Malahan toh lebih baik, sadar akan Suksma Sejati terus menerus daripada beribadah hanya beberapa kali saja seharinya.
 
 **Saudara Sasangka:**\
@@ -2543,7 +2545,7 @@ Sekalipun ia tahu akan jalan yang ia tempuh, apalagi namun tidak ada kehendak da
 
 Sebaliknya, bilamana ada seorang siswa yang tidak mengerti akan rumitnya laku yang ia tempuh, tetapi ia telah dianugerahi untuk bertemu dengan Suksma Sejati di dalam hati sanubarinya sendiri, ia akan berhasil melampaui segala rintangan dan tidak akan ada gangguan yang menghalang-halangi usahanya, asal kemauannya itu telah bertemu dengan kehendak Suksma Sejati. Demikian tertera dalam Sasangka Jati. Soal yang paling belakang inilah yang terpenting. Bagaimana dapat diusahakan agar kemauan kita dapat luluh menjadi satu dengan kehendak Suksma Sejati. Tidak lain dari pada menaati segala petunjuk dan menjauhi segala pantangan dari Suksma sejati. Menaati semua pelajaran sampai hal-hal yang dianggap remeh atau kecil, membawakan para siswa pada suatu taraf kejiwaan di mana kemauan menjadi kehendak dari Suksma Sejati. Pada tingkatan itu semua kemauan kita akan terlaksana adanya karena jiwa kita telah bersatu dengan kehendak Suksma Sejati.
 
-Saudara Sarjana:
+**Saudara Sarjana:**\
 Waduh, hebat benar. Tapi untuk sekian kalinya terbukti bahwa semua usaha penyiswaan berpusat pada Trisila dan Pancasila. Akan tetapi, sekalipun siswa yang menerima anugerah untuk dapat bertunggal dengan Suksma Sejati itu pasti akan berhasil, jalan kesiswaan yang ia tempuh sebelum datang kepastian itu masih sangat sulit dan penuh dengan rentetan ujian yang berat-berat yang membikin kecil hati dan putus asa bagi orang lain yang hanya melihatnya saja.
 
 Orang lain akan melihat ujian-ujian itu akan berkata, saya lebih baik di sini saja, tidak usah tinggi-tinggi derajat kesiswaan saya, karena saya masih mempunyai kesenangan-kesenangan dan kewajiban-kewajiban yang belum dapat saya tinggalkan. Seperti orang yang dekat kepada Suksma Sejati tidak merasa bahagia, dan melalaikan atau meninggalkan kewajiban.
