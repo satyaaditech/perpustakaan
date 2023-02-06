@@ -6,8 +6,6 @@
 
 Buku Tuntunan Pertama
 
-## Hasta Sila
-
 **TRI SILA**
 Tiga Macam Panembah Hati dan Cipta Kepada Tripurusa
 
