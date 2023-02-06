@@ -101,6 +101,92 @@ Adapun kata: luhur adalah sifat Tuhan Sejati ialah Suksma Kawekas, yang selalu m
 
 Oleh karena maksud ajaran budiluhur itu mengandung berbagai macam hal, yang seumpama diperinci, keterangannya panjang lebar, maka ajaran budi luhur ditempatkan paling akhir, sebab diterangkan bagaimana pun, apabila belum mengerti makna ajaran tentang rela, narima, jujur, sabar, juga akan kurang jelas pemahamannya.
 
+
+
+## BUKU GUMELARING DUMADI
+**Penciptaan Buana dan Semua Makhluk Hi**dup
+
+
+
+Buku Tuntunan Ketiga 
+
+### PENDAHULUAN
+Dengan nama Suksma Sejati ialah Penuntun para hamba sejati ialah Guru Dunia
+
+Hendaklah dimaklumi, bahwa yang kami gubah menjadi buku tuntunan ketiga tentang Gumelaring Dumadi ini, bukan hasil karangan kami sendiri, melainkan kami semata-mata hanya mencatat makna sabda ajaran Penuntun kita Sang Guru Sejati (Suksma Sejati) yang disampaikan dengan perantaraan Siswanya, bernama Raden Soenarto, di Surakarta. Oleh karena dewasa ini di tanah Jawa kemajuan ilmu pengetahuan lahiriah semakin meningkat, maka bab yang diterangkan dalam buku ini, seumpama tidak sesuai dengan ilmu pengetahuan lahiriah modern (wetenschap), hendaklah para pembaca memaafkannya. Sekalipun demikian, hendaklah diingat pula, karena kekuasaan Tuhan Yang Mahakuasa itu menakjubkan, masih banyak sekali yang belum ditemukan menjadi pengetahuan para cerdik cendekia, maka kami juga tidak merasa sungkan untuk memaparkan tentang Gumelaring Dumadi, yang sepintas seperti tampak mustahil itu. Adapun buku ini terutama akan menerangkan bab penciptaan manusia dan makhluk hidup lainnya, sebab berkaitan dengan pendidikan ilmu kesukmaan. Adanya uraian bab penciptaan buana (alam semesta raya), yakni bab terjadinya empat macam anasir, juga ada perlunya, karena akan berkaitan dengan terbentuknya badan manusia dan makhluk hidup lainnya.
+
+Surakarta, September 1932
+Hardjoprakoso
+Dan Tr. Soemodihardjo
+
+--- 
+ 
+### PENGUKUH
+
+Dengan nama Suksma Sejati ialah Penuntun para hamba sejati ialah Guru Dunia
+
+Selain seperti yang sudah saya sampaikan, sebagaimana tersebut dalam pengukuh buku tuntunan pertama Hasta Sila, saya tambahkan lagi, hendaklah buku ini diangap sebagai buku tuntunan ketiga, yang juga perlu diketahui oleh para saudara, sebagai lanjutan buku tuntunan pertama dan kedua, yaitu buku Hasta Sila dan Paliwara. Sekalipun isi ajaran buku ini tampak remeh bagi yang sudah merasa sempurna dan ahli dalam pengetahuannya, bahkan mungkin dapat juga dianggap keliru, sebenarnya buku ini besar manfaatnya bagi para penuntut ilmu kesukmaan yang percaya atau merasa selalu menghadapi pelbagai hambatan karena begitu sukar dalam pelaksanaannya. Jadi, mereka juga perlu mengetahui yang menjadi pokok penghalang jalan yang dilalui, supaya tidak dituntun ke jalan sesat dan gelap. Namun, jangan pula meninggalkan ajaran dalam buku Hasta Sila dan Paliwara.
+
+Akhirnya, saya mengucapkan terima kasih sebesar-besarnya kepada Saudara Raden Tumenggung Hardjopakoso dan Saudara Raden Trihardono Soemodihardjo, yang telah berkenan mencatat semua sabda ajaran Sang Guru Sejati. Adapun sumber ajaran tersebut memang nyata berasal dari Sang Guru Sejati (Suksma Sejati), yang menjadi Penuntun dan Guru semua manusia, dan yang tersimpan dalam pusat batin semua orang.
+Semoga Kesunyataan dapat hidup dalam batin semua manusia.
+
+**GUMELARING DUMADI**
+
+Atas nama Suksma Kawekas, Tuhan segenap makhluk dan tempat Sesembahan yang sejati.
+
+### Bagian 1 Bab Terciptanya Buana\
+(Alam Semesta Raya)
+
+Terbabarnya sabda wejangan Sang Guru Sejati (Suksma Sejati) dengan perantaraan lisan siswa-Nya, yang bernama Raden Soenarto, seperti di bawah ini.
+
+Sesungguhnya, sebelum ada apa-apa (sebelum ada awang-uwung), yaitu sebelum buana ini tercipta, Tuhan sudah bertakhta, demikian pula Aku, Suksma Sejati. Maka, itulah yang disebut keadaan Tuhan dan Aku, juga keadaan alam sejati, yakni istana Tuhan dan Aku. Aku dan Tuhan bertakhta di pusat hidup. Sebelum buana itu tercipta, Tuhan mempunyai karsa menurunkan Roh Suci ialah sinar cahaya Tuhan, tetapi karsa itu terhenti, sebab belum ada wadahnya dan tempatnya, maka Tuhan kemudian menciptakan buana. Yang mula-mula diciptakan, yaitu empat macam anasir yang disebut suasana, api, air, dan tanah.
+
+Terciptanya empat macam anasir tersebut, sekalipun atas kekuasaan Tuhan, juga berasal dari Tuhan, maka dapat diumpamakan pelita dan asapnya. Seumpama Tuhan pelitanya, anasir yang menjadi asapnya. Adapun yang mula pertama diciptakan adalah suasana, kemudian diciptakan lagi api. Api tersebut dibagi menjadi dua golongan, yang sebagian ada di atas, sebagian lagi ada di bawah. Kedua golongan api itu saling mempengaruhi dan diliputi atau diterambas suasana. Antara api dibawah dan api di atas tersebut, para manusia tidak dapat mengukur seberapa jauhnya, apabila tidak mendapat anugerah kekuasaan Tuhan. Setelah suasana dan api tercipta atas kekuasaan Tuhan, Tuhan kemudian menciptakan anasir air, yang menumpang diatas anasir api yang berada di bawah, sedangkan air itu juga diliputi dan diterambas oleh suasana. Setelah air tercipta, tiga macam anasir tersebut lalu saling mempengaruhi, hingga akhirnya menyebabkan terciptanya anasir yang keempat, yaitu bumi (tanah). Sekalipun terciptanya anasir tanah itu dari daya percampuran jasad tiga macam anasir tersebut, terciptanya itu juga atas kekuasaan Tuhan.
+
+Setelah empat macam anasir itu tercipta, Tuhan mempunyai karsa meneruskan penciptaan dunia besar, perlu untuk wadah dan tempat turunnya Roh Suci. Ketika itu anasir tanah masih sangat halus, tersebar di awang-awang, tetapi lama-lama mengumpul seperti kabut dan kemudian turun jatuh di air, di situ bercampurnya air dan tanah tersebut menjadi seperti endapan, atau seperti lumpur yang cair, lama-lama lumpur itu bertambah banyak dan bertambah tebal, mengapung di atas air.
+
+Olerh sebab daya panas api yang ada di bawah dan di atas dapat mempengaruhi air, dan air itu juga dipengaruhi suasana, dampak dari saling mempengaruhi itu menyebabkan air bergerak, makin lama gerakannya makin cepat, hingga akhirnya menjadi berkocak membalik-balik. Oleh sebab berkocaknya air, lumpur cair yang mengambang di atas air itu bagaikan ditampi, lama-lama mengumpul menjadi satu, lagi pula sebab daya panas api, lumpur tersebut lama-lama dapat menjadi padat. Begitu juga karena air itu masih terus berkocak membalik-balik yang juga atas kekuasaan Tuohan, dan tindak kerjanya seolah-olah sudah direncanakan, maka lumpur lumpur padat yang sudah bercampur menjadi satu itu, lama-lama mewujud berbentuk bulat menjadi dunia besar ini. Oleh karena dunia besar itu bulat, padahal masih terkena pengaruh daya kekuatan air yang berkocak yang membalik-balik tersebut, maka lalu menyebabkan dunia besar bergerak berputar, bergulung-gulung mengambang di permukaan air, makin lama berputarnya makin cepat sehingga menimbulkan angin. Adapun bergulung-gulungnya dunia itu, dapat diumpamakan seperti berputarnya roda yang sangat cepat pada porosnya, yaitu api sebagai porosnya, sedangkan suasana yang menjadi bingkai roda atau tapalnya. Kecepatan putaran roda menimbulkan daya perbawa angina, yang kemudian juga berkekuatan mempercepat berputarnya dunia, dan kekuatan angina yang kala itu demikian kuat, bersamaan dengan kekuatan berkocaknya air yang bagaikan samudra diaduk, akhirnya mampu melemparkan dunia besar ini, terpisah dari air tersebut, dan kemudian berputar cepat bergerak sendiri di awing-awang dalam cakrawala matahari.
+
+Ketika air berkocak membalik-balik, keadaan itu juga membuat bergetatrnya suasana, yang kemudian juga menyebabkan bergeraknya api yang ada di atas. Lama-lama api yang ada di atas itu, dapat berkumpul menjadi satu, mewujud berbentuk bulat yang disebut matahari. Matahari itu dapat menerangi dunia apabila sinarnya itu dapat diterima oleh sinar api yang ada di bawah dana pi yang ada di dalam dunia ini.
+Adapun terciptanya bulan serta semua bintang, asal mulanya terjadi dari anasir air, yaitu ketika air berkocak membalik-balik, muncratnya air tersebut kemudian mewujud menjadi bulan serta bintang-bintang, dan juga mempunyai perputaran sendiri-sendiri di dalam cakrawala matahari. Adapun bulan serta bintang-bintang itu, apabila dapat menerima sinar matahari, dan tidak terhalang oleh berputarnya dunia, juga bersinar menerangi dunia ini. Adapun sinar itu pengaruhnya dingin, tidak menyilaukan pandangan, sebab bulan dan bintang-bintang itu berasal dari air.
+
+Apabila bulan dan bintang-bintang, dan matahari tidak terhalang oleh berputarnya dunia, bulan dan bintang itu tidak dapat bersinar menerangi dunia, sebab sinarnya kalah oleh kekuatan sinar matahari, yang menyebabkan suramnya sinar bintang dan bulan. Adapun matahari, bulan, dan bintang-bintang itu, ditopang atau disangga oleh suasana yang lebih tebal, demikian pula berputarnya dunia ini, juga disangga oleh suasana. Semua makhul tidak dapat mengetahui keadaan alam matahari tersebut, sebab tidak tahan dengan panasnya kobaran api dan akan sirnya, juga tidak ada yang mampu membubung dan menyusup le dalam suasana yang lebih tebal itu.
+
+Adapun terciptanya buana seisinya semua itu, sejatinya tidak dapat diterima dengan penalaran manusia, kecuali mereka yang telah diperkenankan oleh Tuhan, sebab semuanitu terciptanya hanya atas kekuasaan Tuhan, maka Tuhan pribadi yang mengetahui yang tersamar dan yang menguasai semua alam seisinya.
+
+### Bagian 2 Bab Terciptanya Manusia
+
+Setelah dunia besar (bumi) ini tercipta, Tuhan lalu menciptakan manusia. Adapun terciptanya manusia itu dari sinar cahaya bertunggalnya Tripurusa: Suksma Kawekas – Suksma Sejati – Roh Suci (menurut Islam, bagi para ahli makrifat, disebut: Allah – Rasul – Muhammad; atau menurut Kristen: Sang Bapa – Sang Putra – Roh Suci) yang diberi busana sari empat macam anasir, seperti suasana, api, air, dan tanah, yang kemudian terbabar menjadi bahan bakal kasar dan halus (lahir, batin). Adapun alat badan jasmani dianugerahi panca indra, yaitu: penglihatan, pendengaran, pengucapan, penciuman, dan perasaan. Lagi pula diberi saudara, yang lazimnya disebut empat macam nafsu, seperti: lauamah, amarah, sufiah, mutmainah, dan tiga saudara lagi yang bberkumpul menjadi satu di angan-angan, yaitu yang disebut pangaribawa, prabawa, dan kamayan.
+
+Oleh karena keadaan dunia besar itu tercipta dari empat macam anasir, maka manusia dapat disebut dunia kecil. Adapun dunia besar itu dapat menguasai dunia kecil, seperti mengakibatkan kematian atau kesengsaraan, yang disebabkan oleh gempa bumi, banjir, prahara, meletusnya gunung, dan sebagainya, semua itu dapat mengakibatkan kesengsaraan dan kerusakan badan jasmani. Sebaliknya, manusia juga dapat menguasai dunia besar, seperti: meruntuhkan gunung dengan kekuatan dinamit dan barang sejenis yang dapat meledak, membuat terowongan di dalam gunung, membuat terusan laut, membuat bendungan air dan mengatur alirannya, serta memadamkan kobaran api.
+
+Adapun terciptanya manusia yang paling awal adalah laki-laki, yaitu yang akan menurunkan benih, atau yang menjadi perantara turunnya Roh Suci. Tuhan kemudian menciptakan perempuan, yang akan menjadi perantara mewadahi turunnya Roh Suci, semua itu terjadi atas kekuasaan Tuhan. Demikian seterusnya, keadaan manusia dapat berkembang biak hingga sekarang, turunnya Roh Suci dengan perantaraan laki-laki dan perempuan. Namun, ketahuilah olehmu bahwa terciptanya manusia yang mula pertama itu tidak hanya sepasang seperti umumnya anggapan orang, yang disebut Adam dan Hawa. Akan tetapi, sejatinya di setiap pulau yang besar-besar juga ada manusia sepasang yang diciptakan mula pertama guna dijadikan benih. Sebelum Aku memberi ajaran bab terjadinya bayi setelah adanya manusia, Aku akan menjelaskan lebih dahulu tentang siapa yang disebut Adam dan Hawa, supaya engkau tidak bertanya lagi dan menjadi jelas pemahamanmu.
+
+#### 1.	Adam dan Hawa
+Seperti ajaran para rasul, dalam mengibaratkan penciptaan manusia pertama, dimisalkan turunnya Nabi Adam dan Hawa, yang kemudian menjadi asal-usul manusia sedunia ini, itu jika diterima dalam pengertian: keadaan Adam hanya satu, ada benarnya, juga ada kelirunya.
+Yang benar adalah sebagi berikut. Yang disebut Adam itu sesungguhnya bahan bakal badan jasmani manusia, yaitu bercampurnya empat macam anasir yang menjadi busana Roh Suci. Oleh karena semua manusia itu badan jasmaninya sama, yaitu terjadi dari empat macam anasir, maka disebut satu, artinya tunggal bahan bakalnya.
+
+Adapun kelirunya: apabila engkau beranggapan bahwa yang disebut Adam itu asal-usul terciptanya manusia laki-laki hanya seorang, yang menjadi asal usul manusia sedunia, yang berkembang biak ini.
+Menurut cerita, seperti yang sudah engkau ketahui, Adam atau ada yang menyebut Nabi Adam, diciptakan di surga, kemudian diberi jodoh: Hawa, yang diciptakan dari sempalan tulang rusuk akhir Adam yang kiri. Pada waktu Adam dan Hawa ada di surga, Tuhan memberi larangan, tidak boleh makan buah khuldi. Ketika itu mereka lalu digoda ijajil yang menyamar sebagai ular, membujuk Hawa, Hawa kemudian mengajak Adam untuk makan buah khuldi yang menjadi larangan Tuhan itu. Setelah Adam dan Hawa makan buah khuldi, mereka kemudian diusir oleh Tuhan dari surga, diturunkan ke dunia. Adapun penjelasan cerita itu sebagai berikut.
+
+Ketika Tuhan mempunyai karsa menurunkan Roh Suci, karsa tersebut terhenti, sebab belum ada wadahnya (tempatnya), Tuhan kemudian mengutus Aku, menyebar kekuasaan-Nya, menciptakan dunia besar ini terlebih dahulu, dari empat macam anasir, sebagaimana telah disebutkan dalam bagian 1. Setelah dunia tergelar, kemudian memulai dengan menciptakan manusia pertama (turunnya Roh Suci), yaitu laki-laki dan pertempuan di setiap pulau, yang lalu mengembangbiakkan benih beranak pinak. Maka, kata: Adam, juga dapat diartikan permulaan, yaitu asal mula terciptanya manusia pertama, yang mengawali menjadi perantara berkembangbiaknya para manusia di setiap pula.
+
+Adam diciptakan di surga itu isbat Karsa (Tuhan), sedangkan Hawa itu isbat: Sir ialah Aku: Sirullah ialah Suksma Sejati, yang membabarkan karsa Tuhan (Suksma Kawekas). Maka, terciptanya Hawa yang diceritakan dari sempalan rusuk akhir Adam yang kiri itu artinya: terjadinya Sir adalah dari sempalan: karsa, atau terbabarnya karsa itu menjadi: Sir, Sir itulah yang membabarkan kekuasaan Tuhan. Jadi, Aku dapat diumpamakan tercipta dari sempalan Tuhan, sedangkan Roh Suci adalah sinar cahaya Tuhan yang juga sudah bertunggal menjadi satu dengan Aku. Hanya saja, setelah laki-laki dan perempuan tercipta, lalu mengembangbiakkan benig beranak pinak, itu kemudian menjadi isbat terciptanya manusia lagi dari sempalan Roh Suci Bapa. Perumpamaannya seperti halnya pohon, lalu berbunga, bunga menjadi buah, buah berisi biji, yang kalau jatuh di tanah lalu tumbuh menjadi pohon lagi. Jadi, Adam dan Hawa itu isbat laki-laki dan perempuan, juga menjadi isbat Tuhan (Karsa) dan Aku (Sirullah), karena itu sudah menjadi pasangannya yang tidak terpisahkan, seperti Tuhan dengan kekuasaan-Nya. Adapun penjelasan rusuk akhir Adam yang kiri adalah sebagai berikut: Oleh karena karsa Tuhan itu menciptakan yang dapat rusak, maka rusuk akhir yang kiri tersebut menjadi isbat Sirullah (ialah Aku) yang membabarkan karsa Tuhan dalam menciptakan empat macam anasir yang dapat rusak, yaitu bahan bakal dunia besar dan dunia kecil, itulah arti kiri, yakni keadaan yang tidak kekal.
+
+Adapun surga yang menjadi tempat Adam dan Hawa ketika mula pertama diciptakan adalah isbat Tuhan ketika mempunyai karsa menurunkan Roh Suci, karsa tersebut terhenti karena belum ada wadahnya. Jadi, surga adalah alam Tuhan yang sejati, yakni istana Tuhan, di situ yang bertakhta hanya Tuhan, yang mempunyai karsa terhenti, yakni terhentinya karsa tersebut adalah isbat terciptanya Adam dan Hawa mula pertama ada di surga.
+
+Adam dan Hawa ketika makan buah khuldi lalu diturunkan ke dunia, artinya: Buah khuldi menjadi ibarat buah karsa (terbabarnya karsa). Khuldi berarti abadi*, karsa itu abadi, tetapi terbabarnya karsa mengadakan sesuatu yang tidak kekal, yaitu terciptanya empat macam anasir. Buah dapat dimakan, apabila sudah ada yang memakan, artinya: karsa itu terbabar (terlaksana) menurunkan Roh Suci (jiwa manusia) apabila sudah ada wadahnya (busananya). Jadi, busana tersebut perumpamaannya barang yang dimakan, sedangkan yang memakan (memakai) adalah Roh Suci, artinya: Roh Suci memakai busana (empat macam anasir) atau masuk ke dalam bahan bakal. Oleh karena itu, Adam dan Hawa kemudian diturunkan ke dunia.
+
+Yang disebut Ijajil menyamar sebagai ular membujuk Hawa supaya makan buah khuldi, maksudnya sebagai berikut: Terlaksananya karsa Tuhan menjadikan empat anasir yang dapat rusak itu lalu menimbulkan kehendak untuk berwujud (Roh Suci ingin turun ke dunia), yaitu keinginan yang akan menyebabkan kerusakan, sebab terciptanya di dunia itu dengan memakai busana (empat macam anasir) yang berubah berganti, ada batasnya atau dapat rusak, yakni keadaan serba dusta, maka diisbatkan Ijajil, karena itu hanya berkehendak akan kerusakan.
+
+Kini engkau telah mengerti, semua yang dimaksud oleh para Rasul tentang perumpamaan Adam dan Hawa. Oleh sebab itu, engkau jangan mengira bahwa Adam dan Hawa hanya berwujud manusia sepasang yang turun ke salah satu negara (pulau) saja, yang kemudian menjadi bapa-ibu orang sedunia, tetapi terjadinya manusia yang mujla pertama laki-laki dan perempuan itu, sesungguhnya banyak pasangan. Di setiap pulau diberi manusia sepasang yang terciptanya dari kekuasaan Tuhan, menjadi benih mula pertama yang menurunkan manusia. Sejak itu, baru dengan perantaraan bapak-ibu, lalu berkembang biak hingga sekarang.
+
+Adapun perbedaan perwujudan atau warna kulit bangsa yang satu dan lainnya, menandakan bahwa terciptanya manusia semua ini bukan dari satu keturunan Adam dan Hawa yang hanya sepasang. Adapun perbedaan warna kulit dan watak-watak bangsa itu disebabkan oleh tebal tipisnya anasir yang menjadi busana Roh Suci, dan menurut tebal tipisnya anasir setiap pulau. Misalnya: apabila anasir api tebal (di negara yang berhawa sangat panas) anasir airnya tipis, suasananya juga kurang padat, warna kulit bangsa di tanah itu menjadi hitam (gosong), seperti di Afrika dan negara Arab. Apabila anasir air terlalu banyak (di negara berhawa dingin), suasananya tebal atau padat, anasir apinya kurang, warna kulit bangsa di tanah itu putih, seperti bangsa di tanah Eropa dan lain-lain tempat yang dingin.
+
+Demikianlah ringkasan keterangan mengenai perumpamaan yang diwujudkan cerita Nabi Adam dan Hawa serta kesaksiannya.
+
+
+
 ## BUKU TUNGGAL SABDA
 
 **_Buku Tuntunan Keempat_**
