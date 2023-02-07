@@ -1663,7 +1663,211 @@ Sadherek Kemayan:
 Dhimas Prabawa, aku nglairake rasa bungah lan banget ing suka panarimaku, dene Dhimas kanthi rena lan eklasing penggalih ngidung kang surasane gawe sengsem mareming atiku lan bisa nambahi derenging pangudi tumrap gegayuhaning urip kang sejati.
 Kejaba kadi iku, aku melu krasa bahagia lan banjur ngunjukake suka sukur ing ngayunaning Pangeran, uga ing padaning Sang Guru Sejati, dene Dhimas ing saiki wis salin 'busana anyar', wis lumaku ing dalan kang anjog ing sejatining kamukten, uga wis meruhi patitising pati, pati kang ateges bali marang Sejatining Urip. Yaiku wis ngambah dalan bener, iya dalan kautaman kang anjog ing karahayon, katentreman, lan kamulyan langgeng, kanthi tuntunane Sang Guru Sejati."
 
+## XXXI. DEDALANING PATI (SEKARATIL MAUT)
 
+Salebetipun Sadherek Kemayan lan Sadherek Prabawa sami wawan rembag ingkang gayeng sanget saha nengsemaken wau, panjenenganipun Bapak Pangrasa midhangetaken kanthi sukarenaning penggalih, wasana lajeng paring pangandika makaten.
+
+ Bapak Pangrasa:
+"Putra-putraku sakabehe!
+Bab paniti rasaning urip telung prakara kang rinasakake dening Pakdhe Narto, iku pantes sinudarsana lan piwelinge Pakdhe Narto marang putra-putri Pangestu supaya padha netepi dhawuh wejangane Sang Guru Sejati kang kasebut ing Hastha Sila, iku padha kaestokna.
+Iya mung Hastha Sila kang nuntun marang dalan bener kang anjog ing pamudaran lan kamulyan langgeng.
+Dene paniti rasaning urip telung prakara kasebut ndhuwur saka panyurasaku mangkene:
+
+**1. Rasaning Badan Wadhag**
+
+Tumrap wong kang jiwane isih turu kepati, yaiku kahanane wong kang isih linimputan ing pepeteng, kang rinasakake mung enak-kepenaking badan wadhag bae, rinengga-rengga, pinuja-puja.
+Mula yen pinuju badan wadhage ketaman warna-warnaning panandhang, sambate ngaruara, ngolang-aling, rasa-pangrasane isi rasa wedi yen larane mau dadi jalaraning pati.
+Nanging tumrap wong kang wis lumaku ing dalan kasunyatan jati, yaiku para calon siswa kang wis nyedhaki Sang Pepadhang, yen nuju ketaman panandhanging badan wadhag, sanadyan iya isih iktiyar usada murih waluyaning wuyung, rasa-pangrasane mung pasrah marang purbawasesaning Allah, awit mangerti manawa pati-urip iku ana astaning Allah. Owah utawa onyaning badan wadhag rinasa utawa katampa dadi sasmita-dhawuhing Allah manawa wis nyedhaki dina 'lohilmakpul' yaiku nyedhaki liang kubur, nyedhaki timbalaning Allah.
+
+**2. Rasaning Jiwa (Angen-angen)**
+
+Tumrap wong kang ngedohi Sang Pepadhang, yaiku wong kang isih linimputan ing pepeteng, rasa-pangrasane mung tansah ngrasakake owah gingsiring lelakon kang sinandhang, kang nuwuhake rasa bungah lan susah.
+
+Dene tumrap wong kang wis cinedhakan Sang Pepadhang, rasa pangrasane tansah nyedhak marang Sang Sasangka Jati, kang nuntun tentreming ati, lan sumadhiya samangsa-mangsa tinimbalan bali ing Gusti, kanthi eklas-rila legawa ninggal kanikmatan donya, amarga mangerti manawa kauripan ing donya iku ora langgeng, lan urip iku ora bisa sumingkir saka warna-warnaning panandhang. Lan mangerti manawa bali, manunggal ing Allah iku ateges luwar saka warna-warnaning panandhang, bali marang tuking urip, iya dununging kamulyan langgeng.
+
+**3. Rasaning Suksma (Roh Suci)**
+
+Yaiku kahanane siswa kang wis bisa nelukake sang Aku utawa 'nurokake' sang Aku, turune sang Aku wungune Roh Suci. Wungune Roh Suci, siswa bisa manunggal lan Sang Guru Sejati (Suksma Sejati), wudhar saka bebandaning donya kang owah gingsir iki, dene kang rinasa mung ayem-tentrem-jinem-bahagia kang langgeng.
+
+Putra-putraku sakabehe!
+Kaya wus cukup anggonku nerangake dhawuh wejangane Sang Guru Sejati kang kudu diestokake dening kabeh siswa. Saka pamawasku kowe kabeh wis diwasa anggonmu padha nyiswa ing padaning Sang Guru Sejati. Ing saiki tampanen dhawuh wejangane Sang Guru Sejati kang winahyakake lumantar siswa wredha bab dedalaning pati.
+
+**Dedalaning Pati**
+
+Ing sajroning aku medharake dhawuh wejangane Sang Guru Sejati kasebut ndhuwur, kowe kabeh supaya padha tumungkul kanthi ngeningake cipta, ngenengake angen-angen."
+
+Sadherek Kemayan, Pangaribawa, tuwin Sadherek Prabawa, sami sesarengan mabukuh, bebasan konjem ing bantala, boten mobah-mosik. Ing sakala punika papaning bawa raos linimputan swasana tidhem-premanem-tentrem, bebasan boten wonten sabawaning walang salisik, wasana Bapak Pangrasa lajeng medharaken sabdaning Sang Guru Sejati kanthi tembung ingkang sareh-alon-gumolong tuwin wijang kados ing ngandhap punika.
+1. "Wruhanira para siswa, mungguh sejatining Uripira (Roh Sucinira) iku asal saka Suksma Kawekas lan bakal bali marang Panjenengane.
+2. Suksma Kawekas iku tuking Urip, iya sangkan paraning sagung dumadi, kang ndumadekake kabeh alam saisine.
+3. Roh Sucinira iku sejatine saperangan saka sariraning Allah, uga kena pinindhakake kaya dene sorot utawa pletiking Allah.
+4. Kahananira iku nunggal lan Ingsun, Suksma Sejati, uga nunggal lan Suksma Kawekas, Pangeranira Sejati.
+5. Badan wadhagira dumadi lantaran karsa, kang kababare kanthi kawicaksanan lan panguwasaning-Sun, iya panguwasaning Allah, awujud anasir (bebakalan) patang :Prakara, yaiku: swasana, geni, banyu, bumi.
+6. Sira tinurunake ing alam kuwadhagan (alam donya) ngrasuk busana anasir patang prakara kasebut, sinartan pancadriya kang minangka warananing karsa, apa dene daya kekuwatan pitung prakara (*) kang dadi lantaran kawicaksanan lan panguwasa, iku kagem lantaran (warana) ambabarake karsaning Pangeran kang langgeng.
+7. Badan wadhagira kang dumadi saka anasir patang prakara kasebut bakal nemahi rusak utawa mati, dene alusing anasir bakal bali marang asale (kamulane) anasir dhewe-dhewe yaiku: swasana bali marang swasana, geni bali marang geni, banyu bali marang banyu, bumi bali marang bumi, kang nglimputi jagad gedhe iki.
+8. Dene Roh Sejatinira (Roh Sucinira) tetep urip langgeng manunggal lan Ingsun, Suksma Sejati, ing dhampar palenggahaning-Sun ing telenging Urip Langgeng, iya manunggal lan Suksma Kawekas ing alam sejati, alam katentreman lan kamulyan langgeng, kang nglimputi kabeh alam saisine.
+9. Kang mangkono mau, yaiku bisane sira bali (manunggal) marang Allah, manawa Rohira ora rinegedan dening jejembering jagad, yaiku jiwanira (angen-angenira) ora kelet kanthil-kumanthil tresnane marang barang-barang kang kena rusak (ora langgeng), kang nyababake sira banjur linimputan pepeteng, satemah lali marang Pangeran lan Ingsun, lan ora sumedya utawa niyat bali marang Allah kanthi eklas ninggal donya, dene wujude wong padha ngemohi (wedi) tekaning pati.
+
+Katerangan
+(*) Inggih punika kekiyataning gesang nafsu 4 prakawis lan angen-angen satunggal ingkang sipat tiga:
+1. cipta (pikir), ugi sinebut Pangaribawa
+2. nalar, ugi sinebut Prabawa
+3. pangerti utawi akal budi, ugi Kemayan
+Dene nafsu sekawan prakawis punika dumados saking soroting anasir sekawan kasebut nginggil, peprincenipun makaten: swasana sinebut Mutmainah, latu sinebut Amarah, toya sinebut Supiah, bumi sinebut Luwamah.
+
+10.Yen atinira (angen-angenira) ora sinucen kalawan keiklasan (rila) lan ora kesorotan pepadhang dening 'elingira' marang Pangeran lan Ingsun, sira ora tumuli bali (manunggal) marang Allah, Pangeranira Sejati, nanging bakal tinurunake dening angger-angger langgeng, yaiku sifat pangadilaning Allah ing alam kuwadhagan, ing sawise sira luwih dhisik ngambah alam pepeteng (alam kafiruna), yaiku alam panandhanging jiwa kang dosa utawa lali marang Pangeran Sejati (murtad); dene sapira lawase ing alam mau, iku iya gumantung anggonira tumuli 'eling' marang Allah, eling marang Ingsun.
+11. Yen sira ora padha netepi 'sesanggeman suci', yaiku ngrasuk sejatining sahadat (paugeraning Pangeran marang kawula) lan nuceni atinira, sira bakal tinurunake ing aiam karusakan (donya) iki, ing sawise ngliwati alam pepeteng (alam kafiruna), iya alam panandhanging jiwa kang lali marang Allah, nganti pitung rambahan.
+12. Marmane padha mituhua marang piwulang Ingsun, netepi 'sesanggeman suci' kasebut lan padha nucenana atinira, supaya sira ora kawasesa ing angger-angger langgeng tinurunake maneh (tumimbal lair) nganti pitung rambahan, kanthi warna-warnaning panandhang. Padha andarbenana gegayuhan sapisan rampung, sampurna panunggalira (baiinira) ing Allah.
+13. Ing samengko padha piyarsakna bab dedaianing pati tumrap wong kang durung sangu kasucian utawa pati kang tan patitis.
+14. Ing sawise tumeka titimangsane (pepesthening gaib) sesadone badan wadhag kang dumadi saka anasir patang prakara iku onya, sira padha karasa nampa warna-warnaning panandhang, yaiku laraning badan wadhag; ing sadurunge Roh oncat (surut) saka badan wadhag, sira bakal padha kadunungan rasa sumrepet peteng panonira, lan napasira wiwit krasa seseg (ngangsur). Ing kono sira bakal nyumurupi cahya manca warna kang sinawang ing pangrasanira (ora karana netra). Dene cahya mau sejatine kadangira pribadi, yaiku urip kang kinuripan dening Sejatining Urip (**), sawise iku sira banjur nyawang kanthi pangrasanira barang-barang kang sira tresnani kayata: yen sira tresna marang anak, iya anakira, yen sira tresna marang bojo, iya bojonira, yen sira tresna marang bandha, iya bandhanira, kang katon ing sawanganing pangrasa (angen-angenira).
+15. Awit saka iku sira banjur lali marang Allah, iya lali marang lngsun lan ora niyat bali marang Allah, kang nyababake Robira ora tumuli bali lan manunggal marang Allah, temahan dumunung ing alam pepeteng (alam kafiruna) utawa alam panandhang. Ing sawise sira eling marang Allah, banjur tinurunake dening angger-angger langgeng marang alam kuwadhagan (alam donya) maneh.
+16. Dumadinira utawa lair ira maneh (tumimbal lair) kang kapindho iku bakal nampa piweleh utawa ngundhuh wohing panggawenira ing kauripan kang kapisan, awujud kamukten utawa papa, begja utawa cilaka, bungah utawa susah, manut panandure duk ing kauripan kapisan. Nandur kabecikan, ngundhuh kabegjan; nandur piala, ngundhuh sangsara, mangkono sabanjure.
+
+Katerangan
+(**) 1. Cipta (pamikir)
+2. Nalar
+3. Pangerti
+Kempaling 1-2-3 ing dalem kaheningan sinebut bayu sejati utawi "Aku" kang luhur, urip kang kinuripan dening Sejatining Urip.
+4. Swasana (Mutmainah)
+5. Latu (Amarah)
+6. Toya (Supiah)
+7. Bumi (Luwamah)
+Kempaling 4,5,6,7, kang madhahi urip utawi ingkang nggadhahi daya kekiyatan urip. Kempaling 1, 2, 3, 4, 5, 6, 7 = "Aku" kang asor.
+17. Dene tumrap kang padha sangu kasucian lan ngrasuk sejatining sahadat, saoncate Roh saka badan wadhag, banjur byar manunggal marang Allah, iya manunggal lan Ingsun ing alam sejati, yaiku alam katentreman lan kamulyan langgeng kang nglimputi kabeh alam saisine.
+18. Kahanane alam sejati iku ora ana pepindhane, yen tinerangake kanthi tetembungan, kahanane tentrem-jinem-nikmat-manfangat kang langgeng kahanane.
+19. Wruhanira pati kang patitis, utawa sangune bali marang Pangeranira Sejati iku ana patang prakara, yaiku:
+(1) Kang dhingin: Padha ngrasuka sejatining sahadat.
+(2) Kapindho: Eling (bekti) marang Allah lan Ingsun.
+(3) Kaping telu: Pracaya bakal bali marang Allah, lan niyat bali marang Allah.
+(4) Kaping pat: Eklas ninggal donya.
+Patang prakara mau kaesthi ing ati kang suci lan santosaning tekad.
+20. Dene tumrap kang winahyu drajat luhur, yaiku para kang wis tumeka kasunyatan jati (pamudharan) wis sumingkir utawa wudhar saka wasesaning angger-angger langgeng. Satuhu.
+
+Putra-putraku sakabehe!
+Dhawuh wejangane Sang Guru Sejati kasebut ing dhuwur simpenen sajroning ati kang suci. Tumrap kang padha pracaya marang Sang Guru Sejati, Utusaning Pangeran Kang Langgeng, dhawuh kasebut sawijining sih nugrahaning Allah kang wajib pinundhi-pundhi lan diestokake.
+Poma piwelingku, dhawuh wejangane Sang Guru Sejati kasebut aja dianggo rerembugan karo wong kang ora pracaya utawa ngemohi dhawuh wejangane Sang Guru Sejati, mundhak nuwuhake padudon lan pasulayan, amarga dhawuh kasebut mung kaparingake marang para siswa.
+Perlu kawigatekna manawa piwulang bab urip rambah kaping pitu utawa tumimbal-lair (reincarnatie) iku kalebu 'panging' ilmu, dadi dudu deleging tujuan. Mula putra-putraku padha ngestokna dhawuhing Sang Guru Sejati, yaiku padha darbea gegayuhan sapisan rampung utawa sampurna bali (manunggal) marang Allah, Asal Kamulaning Urip, kanthi sarat-sarat kang tinamtokake lan nyuwun tuntunane Sang Suksma Sejati (Sang Guru Sejati).
+
+Sadherek Kemayan, Pangaribawa, tuwin Sadherek Prabawa sami sesarengan mbata rebah matur badhe ngestokaken saha ngluhuraken dhawuh wejanganipun Sang Guru Sejati. Salajengipun Sadherek Prabawa ngrepepeh sumungkem ing ngarsanipun Bapak Pangrasa saha lajeng matur makaten:
+"Dhuh, Bapak pepundhen kula, dhawuh wejanganipun Sang Guru Sejati ingkang nembe kita tampi lumantar panjenenganipun Bapak punika wau, kita candhi salebeting gesang kita, lan badhe kita estokaken. Kita rumaos nampi sih nugrahaning Pangeran lumantar Sang Guru Sejati, dene kita pinaringan sumerep kados pundi kawontenan kita ing tembe, yen tinimbalan wangsul ing ngayunaning Pangeran.
+Ing sapunika kita sampun kaparingan 'kuncining' swarga, inggih punika lampah kados pundi saged kita wangsul manunggil ing Allah.
+Dhawuh wejanganipun Sang Guru Sejati punika kenging kula anggep piwulang utawi wejangan 'pagedhongan', tegesipun boten kangge sadhengah (umum), nanging namung kangge para siswa tuwin para umat ingkang sami pitados dhateng Sang Guru Sejati, inggih ingkang pitados dhateng Allah. Ing kalangan 'peguron klenik' wejangan ingkang dipun anggep wejangan 'pagedhongan', anggenipun medharaken sang 'guru klenik' mawi upacara warni-warni, kadosta: pun murid kedah linggih mori putih, terkadhang dipun lurupi mori utawi sinjang, mawi sajen tuwin slametan maneka warni, pamejangipun wanci tengah dalu wonten ing latar (boten kenging keuban wangon), terkadhang pun 'guru' lan pun murid lukar busana nyemplung lepen.
+Kula saged matur makaten wau, amargi kula sampun nate ngalami piyambak, wekdal kula meguru dhateng 'kyai' Deledong, guru klenik, ingkang dalemipun ing dhukuh Bolebang. Dene ingkang dipun wejangaken 'ilmu nggladrah', tembungipun campur adhuk, tuwin dakik-dakik."
+
+Bapak Pangrasa midhangetaken kanthi mesem, saha lajeng paring dhawuh makaten:
+"Prabawa, sumurupa manawa kahanan ing donya iku pancen kebekan 'dongeng' kang maneka warna, ana kang nggregetake, ana kang memelas, ana kang lucu, ana kang ngrusak katentreman, ana kang nasarake, ana kang nengsemake.
+Mung anehe, manungsa iku, kang akeh-akeh, yen dituduhake dalan bener kang ora kanthi bea lan pamrih apa-apa iku malah padha mlengos (ngemohi), nanging yen disasarake kanthi rerekan lan janji-janji kang muluk-muluk, kang aneh-aneh utawa elok-elok, sanadyan kudu mbayar wragad an nindakake laku kang aneh-aneh, padha kapiluyu rebut dhucung.
+Mula begja wong kang padha bekti lan mituhu dhawuhing Allah, netepi pituduhing agama kang bener saka wahyuning Allah.
+Putra-putraku sakabehe, kaya wis cukup anggonku nuwani utawa ngesuhi 'Bawa Rasa sajroning Rasa' ana ing pondhok 'Dana Warih'. Minangka panutuping 'Bawa Rasa' aku arep ngidung Mijil Purnamasidi."
+
+## XXXII. MIJIL PURNAMA SIDI
+
+Bawa Kusumastuti
+
+Dhuh, siswaning Sang Guru Sejati satuhu,
+Den bekti mring Hyang Suksma,
+Mituhu sayekti
+Netepi Dasa Sila,
+Sesanggeman suci,
+Dhedhasar Panca Sila,
+Ngesthi sihing Gusti.
+
+Dhawah Mijil Sulastri
+
+1. Tumuruning Sang Sasangka Jati, Nugrahaning Manon, 
+Hidayating Pangeran yektine, 
+Kang ingemban Sang Suksma Sejati, 
+Panuntun sayekti, 
+Utusan Hyang Agung.
+
+2. Kang winahya lumantar tutuking,
+Siswa-Nya kinaot,
+Dyan Soenarto nenggih peparabe,
+Kang piniji dadya warananing,
+Sang Guru Sejati,
+Tetesing sabda-yu.
+
+3. Amemayu hayuning pra jalmi,
+Kang samya pitados,
+Raharjaning jagad saisine,
+Marma wajib samya den pepundhi,
+Para siswa sami,
+Lan umat sawegung.
+
+4. Kang marsudi kamulyaning urip,
+Lair miwah batos,
+Ameruhi sangkan lan parane,
+Mrih rahayu donya prapteng akir,
+Sampurnaning urip,
+Manunggal Hyang Agung
+
+5. Pepadhanging Sang Sasangka Jati,
+Simpenen ing raos,
+Rasakena den krasa rasane,
+Kang rumesep jroning rahsa jati,
+Ati kang sinuci,
+Dhamparing Hyang Agung.
+
+Sadherek Kemayan:
+"Dhuh, Bapak pepundhen kula, salebetipun kula mirengaken dhawuh paduka, minangka panutuping bawa raos ing padhepokan Dana Warih ingkang rinengga ing kidung 'Mijil Sulastri' mawi bawa Kusumastuti kagem ngluhuraken mijiling purnamasidi, inggih tumedhaking Sang Sasangka Jati, raosing manah kula boten saged kula gambaraken kanthi tetembungan, ing raos kebekan sengsem ingkang nuwuhaken ayem-tentrem, katarambas aruming sabda ingkang isi dhawuh supados kita para siswa memundhi saha ngestokaken dhawuh wejanganipun Sang Guru Sejati, ingkang nuntun dhateng kamulyaning gesang lair batin.
+
+Dhuh, Bapak, inggih amung paduka bapa-guru pepundhen kula, ingkang wajib kula luhuraken tuwin kula bekteni. Kula prasetya badhe ngestokaken dhawuh paduka, mituhu dhawuhing Sang Guru Sejati ingkang cinandhi ing pustaka suci Sasangka Jati. Kula nyuwun berkah-pangestunipun Bapak mugi kula saged netepi prasetyaning manah, lumampah ing margi leres, inggih margi utami ingkang anjog ing karahayon, katentreman, tuwin kamulyan langgeng.
+
+Ing sapunika keparenga kula saha adhi kula kekalih mundur saking ngarsanipun Bapak, dene sedyaning manah kula badhe lelana brata, nggayuh geyonganing kayun, njembar-njembaraken dhawuhipun Sang Guru Sejati, inggih dhawuhing Suksma Kawekas."
+
+Wasana Sadherek Kemayan lajeng sumungkem ngabekti ing padanipun Bapak Pangrasa, salajengipun Sadherek Prabawa lan Sadherek Pangaribawa sami sumambet sumungkem ngabekti ing ngarsanipun Bapak Pangrasa.
+Bapak Pangrasa ngatingalaken tresna-asihipun dhateng putra-putranipun kanthi ngepuk-epuk pundhakipun para putra wekdal sami sumungkem ing ngarsanipun saha lajeng paring dhawuh:
+Bapak Pangrasa:
+"Putra-putraku sakabehe, bektimu marang wong tuwa daktampa kanthi suka pirena, pamujiku muga-muga putraku sakabehe padha tetepa winengku ing suka basuki lan padha kasembadana kang ginayuh, iya gegayuhan kang luhur lan suci, awit saka sih nugrahaning Gusti.
+Putraku Kemayan!
+Kowe dakwenehi pusaka wujud jubah ijo, kang saben-saben dakanggo sumiwi-ngabekti ing ngarsaning Gusti. Jubah iki anggonen saben-saben kowe mastuti ing Gusti, lan dadia piagem anggonku masrahake kuwajibanku kang luhur lan suci marang kowe, yaiku makili pakaryane Sang Guru Sejati, njembar-njembarake dhawuhing Pangeran marang kabeh umat kang padha pracaya lan kang padha mbutuhake pepadhang."
+
+Sadherek Kemayan gurawalan anggenipun nampi jubah pusaka peparingipun Bapak Pangrasa, kanthi ndheku saha matur:
+"Bapak, paringipun pusaka jubah ijem kula tampi kalayan raos trenyuh cinampur raos 'bangga-bahagia'. Sarambut pinara sasra kula boten nginten badhe nampi sihipun Bapak wujud 'lambang piagem' nglengser kalenggahanipun Bapak ingkang luhur tuwin suci, inggih punika makili pakaryanipun Sang Guru Sejati, njembar-njembaraken dhawuhing Gusti, kados ingkang sampun dangu dados idam-idaman tuwin gegayuhan kula. Ingkang punika, Bapak, kula ngaturaken genging panuwun kula, saha nyuwun tambahing berkah-pangestu supados kula saged nindakaken kuwajiban ingkang awrat saha gawat, nanging ingkang luhur tuwin suci punika, awit saking sih, tuntunan, pepadhang, tuwin pengayomanipun Sang Guru Sejati."
+Bapak Pangrasa, kanthi pasuryan ingkang sumunar padhang namung medharaken pangandika: "Satuhu."
+
+Wasana Sadherek Kemayan, kairing adhinipun kekalih, Prabawa lan Pangaribawa, kanthi kumembeng ing waspa, awit sami rumaos awrat badhe nilar pacrabakan Dana Warih, papan ingkang gegeteripun ndayani katentreman tuwin kebahagiaan, lumengser medal saking pacrabakan.
+Bapak Pangrasa nguntapaken bidhalipun para putra jumeneng ing tengah-tengahipun kori kanthi mirsani para putra, ngantos 'auto' merk Opel cet pethak nomer D 10909, ingkang dipun tumpaki para putra, musna saking paningal, kanthi ngunandika, "Muga putra-putraku nyandhunga kembang cepaka sewakul. Satuhu rahayu kang rahayu ing budi!
+
+## XXXIII. SUKSMA NGUMBARA!
+
+**Dongengipun Bapak Soenarto**
+
+Bab sesambatipun (kawontenanipun) Roh ingkang taksih dumunung ing alam pepeteng (alam kafiruna) inggih punika jiwaning manungsa ingkang dereng saged wangsul ing Pangeran Sejati, margi kasupen dhateng Pangeran tuwin dhateng Panuntun Sejati, awit saking kalimputan dening katresnanipun dhateng kadonyan. Pipiridan saking dhawuh wejanganipun Sang Guru Sejati.
+
+**MEGATRUH**
+
+1. Dhuh pra kadang-kadangku warga Pangestu, piyarsakna sun dongengi, sesambat panangisipun, jiwa kang kesasar mungging, kafiruna wit binendon.
+2. Nampa coba piwelehira Hyang Agung, wit mukir marang Hyang Widi, duk gesangira rumuhun, lali sesanggeman suci, nrejang pepacuh Hyang Manon.
+3. Sesambate melas asih tulung-tulung, dhuh-dhuh panase kepati, ngendi baya nggonku ngeyub, adhuh, ora nggawa caping, adhuh, aku banget ngorong.
+4. Sapa baya nyilihi trumpah lan tudhung, aweh ngombe banyu cangkir, sukur bagya es lan limun, kinarya usada salit, adhuh, napasku meh pedhot.
+5. Panangise megap-megap minta minum, tan ana kang asung warih, ing mangkya pangrasanipun, salin panandhanging batin, lungguh ndheprok andherodhog.
+6. Adhuh-adhuh krasa adhem awak ingsun, adheme ngluwih-luwihi, adhuh, ora duwe kemul, sapa baya aweh kamli, adhuh, ora betah ingong.
+7. Sesambate wel-welan aminta kemul, nging tan ana mitulungi, ing mangkya pangrasanipun, salin panandhanging batin, weteng luwe kroncang-kroncong.
+8. Adhuh-adhuh, awakku gumeter lumpuh, weteng nglikik ngintir-intir, adhuh, Ibu, nyuwun sekul, sokur mawi lawuh bestik, mbotene nggih trimah gemblong.
+9. Sesambate gelangsaran minta sekul, nging tan ana asung bukti, ing mangkya pangrasanipun, sa1in panandhanging batin, tinempuh udan gumrojog.
+10. Adhuh-adhuh, ngendi nggonku bisa ngeyub, udan deres nganggo angin, datan darbe santun, sapa baya mitulungi, ngececes sandhangan kembroh.
+11. Adhuh-adhuh, Ibu, kula nyuwun payung, santun sinjang lan kulambi, adhuh Ibu, nyuwun tulung, badan kula tan kuwawi, sinerang udan lesus wor.
+12. Panangise senggruk-senggruk minta tulung, nging tan ana mitulungi, ing mangkya pangrasanipun, eling kekasihe nguni, bojone katon neng panon.
+13. 0, Supiyah kekasihku dhuh wong ayu, welasana dasih mami,sapa sing wajib tetulung, kajaba sira wong manis, pun kakang nandhang rekaos.
+14. Amung sira kang dadi jejimat ingsun, cumanthel ing mripat mami, gumantung teleng jejantung, mung sira kang sun tresnani, dhuh Supiyah garwaningong.
+15. Lunga ngendi, pagene tan gelem nusul, apa tan eling mring
+mami, helo, kae runtung-runtung, Supiyah kinanthi janmi, dhasar bagus tur maksih nom.
+16. Adhuh-adhuh, Supiyah lali maring-sun, teka jebul ninggal laki, apa tan eling janjimu, duk padha pacangan nguni, prasetya tresna sayektos.
+17. Mengko ndadak tega ninggal marang ingsun, megat katresnan lan janji. 0, Supiyah kekasihku, nadyan sira ninggal laki, welingku kang ngatos-atos. ·
+18. Aku titip anakku, mongen satuhu, aja nganti den cecenggring, 0, Amarah putraningsun, kekasihku bocah sigit, kowe melu pak kuwalon.
+19. Piwelingku den bekti wedi ramamu, kuwalon lan ibu neki, mbangun turut prentahipun, aja pisan kumawani, mundhak sira sring binendon.
+20. Adhuh-adhuh, kadiparan raganingsun, pinisah garwa lan siwi, mitra kadang rama ibu, sadaya amitambuhi, saben janma pethuk mlengos.
+21. Dhuh-dhuh adhuh, ing ngendi kang ingsun jujug, tan ana plerenan iki, saparan-paran anglangut, petenge anggegirisi, githokku mrinding mengkorog.
+22. Ing saparan-paran katon awang-uwung, tan ana pepadhang keksi, satemah mandheg anjetung, nalangsa enget mring Widi, sakala byar padhang katon.
+23. Sirna rasa panandhang kadya winuwus, cenger nulya mimbal lair, saking pangwaseng Hyang Agung, tumuruning Roh kang Suci, prapteng mangsa kang pinathok.
+24. Uripipun ing donya kadya rumuhun, nampeni piweleh malih, ngundhuh woh pananemipun, duk gesangira ing nguni, bungah susah gentos-gentos.
+25. Dhuh pra kadang-kadangku warga Pangestu, miwah anak putu mami, lelakon tinutur ndhuwur, tumrap wong kang padha lali, sangkan paraning dumados.
+26. Lawan malih atine linimput pedhut, tresnane kelet kumanthil, bandha donya kang sinujud, suthik ngabekti mring Widi, nyingkur dadalan k'rahayon.
+27. Temahipun kesasar keblasuk-blasuk, duk Roh oncat sing jasmani, lir kinjeng nir socanipun, tujune tumuli eling, sinorot esthining batos.
+28. Ahli waris kang nenuwun mring Hyang Agung, pineleng jro sanubari, pinesu ing saben wektu, ing tengahing lingsir wengi, temah tinarimeng Manon.
+29. Dhuh pra kadang anak putu ngong sadarum, poma-poma weling mami, den tetep santosa tuhu, netepi sanggeman suci, Hastha Sila kang kawiyos.
+30. Panutuping dongeng-ngong kasebut ndhuwur, sinerat ing madyeng ratri, kanthi nalangsa Hyang Agung, nuju hari Slasa Legi, tanggal selawe linakon.
+31. Wulanipun Jumadilawal kapetung, tahun Wawu amarengi, sinengkalaning kang tahun, Janma Ngesthi Yuning Urip (1881), mrih antuk sihing Hyang Manon.
 
  
 
