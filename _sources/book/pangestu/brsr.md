@@ -1433,6 +1433,239 @@ Bapak Pangrasa:
 3. Sira andarbeni sesanggeman apa, lan kepriye kebabaring sesanggeman mau?
 4. Apa perlune sira dumadi urip?
 5. Apa kuwajibanira, lan sawise kuwajibanira rampung, sira bali menyang endi, apa sangunira yen sira mulih marang omahira kang sejati?"
+## XXX. SANGKAN PARANING URIP
+Bapak Pangrasa:
+"Prabawa, apa sababe dene pasemonmu katon ngandhelong, lungguhmu kaya-kaya nglokro-kendho; apa kowe wis sumadhiya wangsulan tumrap pandangone Sang Guru Sejati?"
+
+Sadherek Prabawa:
+"Adhuh, Bapak pepundhen kula, Bapak sanyata waspada ing paningal, saben-saben Bapak 'maos' isining raos tuwin batos kula, mesthi nyeplesi isining raos tuwin ebahing batos kula; ingkang makaten wau satunggaling tandha, bilih panjenenganipun Bapak cinelak tuwin kinasih dening Sang Guru Sejati.
+Kula nyuwun genging pangapunten, dene kula ngaturaken pamuji ing ngarsanipun Bapak ingkang mijil saking manah suci.
+Kawuningana Bapak, sareng kula mireng pandangonipun Sang Guru Sejati ingkang panjenengan wedharaken wau, saderengipun kula ngaturaken wangsulan, langkung rumiyin kula badhe ngaturaken raosing manah kula, ingkang ceples kados pamawasipun Bapak, inggih punika manah kula kraos ngandhelong, ingkang njalari nglokro-kendhoning badan wadhag. Ing sakala punika kados-kados kula uwal saking bebandaning donya, tuwin sumingkir saking pakartining maya. Saha lajeng enget dhateng pangraosipun Pakdhe Narto ing tanggaping warsa 1954, kagubah mawi sekar Kinanthi ingkang sinerat ing Sesotya Rinonce, ingkang suraosipun saged nggigah raos kula kepengin wangsul ing Sangkan Paraning Gesang."
+
+Bapak Pangrasa:
+Prabawa, kanthi suka pirena aku ngrungokake aturmu, sanyata kowe saiki dadi siswa kang mursid lan alus panggraitamu.
+Nanging Prabawa, kowe aja lali, manawa kabeh siswa mesthi kinasih dening Sang Guru Sejati, amarga Guru Sejati iku asifat murah lan asih, apa dene adil. Dene siswa kang bisa nampani ilining sih mau, iya mung siswa kang temen-temen bekti lan mituhu. Mungguh kebabaring sih iku jembar banget tebane, dene yen riningkes ana telung bab, yaiku:
+1. kala-kala siswa pinareng ngampil panguwasa, sanadyan bebasan mung saluguting kolang-kaling gedhene;
+2. kala-kala siswa pinareng nampa soroting kawicaksanan, sanadyan bebasan mung sagebyaring konang;
+3. kala-kala siswa pinareng dadi lantaraning karsa, iya karsaning Pangeran kang binabar, kang mahanani kamulyaning urip lair batin.
+Awit saka iku Prabawa, kowe aja muji-muji marang dhiri pribadiku, amarga aku iki manungsa lumrah, ora beda karo umat liyane, ora pantes ing ngalembana lan pinuji-puji.
+Dene kang wajib pinuji lan linuhurake iku iya mung Allah pribadi dalah Utusane kang Langgeng, iya Sang Guru Sejati."
+
+Sadherek Prabawa ndheku kanthi umatur:
+Kaluhuran dhawuhipun Bapak, kula ambali malih atur kula, kula nyuwun genging pangapunten dene kula kumawantun ngaturaken pamuji-pangalembana katur panjenenganipun Bapak, ingkang makaten wau boten sanes kabekta saking agenging raos bekti-tresnanipun putra dhateng tiyang sepuh pepundhenipun. Bapak, ing sapunika punapa kula lajeng kepareng ngaturaken wangsulan tumrap pandangonipun Sang Guru Sejati?"
+
+Bapak Pangrasa:
+"0, Prabawa, iya wis ora dadi apa, aku mung ngelingake marang kang padha lali: sapa kang wajib pinuji ingalembana lan  linuhurake. Ing saiki kepriye wangsulanmu tumrap pandangone Sang Guru Sejati. Coba banjur wedharna kang pratela."
+
+Sadherek Prabawa lajeng ngaturaken wangsulan kados ing ngandhap punika.
+"Pandangonipun Sang Guru Sejati:
+1. Sadurunge sira dumadi sira dumunung ing endi?
+Wangsulan:
+Saderengipun kula dumados, Roh Suci dumunung wonten ing Sejatining Gesang, inggih Tuking Gesang, inggih punika Suksma Kawekas (Allah) ingkang sifat karsa, ingkang ndumadosaken sadaya alam saisinipun.
+2. Lantaran apa sira dumadi ana ing alam kuwadhagan iki?
+Wangsulan:
+Dumados kula ing alam kuwadhagan punika lantaran rama-ibu, katarik dening karep, inggih manunggiling karepipun rama-ibu; awit saking kababaring karsa tuwin panguwasaning Pangeran tumedhaking Roh Suci (pletiking Gesang) ingkang ginesangan dening Sejatining Gesang, Suksma Sejati, ingkang dados Panuntun saha Guru kita ingkang sejati.
+3. Sira andarbeni sesanggeman apa lan kepriye kababare sesanggemanmau?
+Wangsulan:
+Saderengipun Roh Suci tinedhakaken ing alam kuwadhagan, nggadhahi sesanggeman; sesanggeman wau yen ·kaucapaken kanthi tetembungan dados sesanggemaning gesang, inggih punika paugeraning Pangeran dhateng kawula. Dene kababaring sesanggeman wau, kita kedah nggadhahi niyat wangsul dhateng Asal Kamulaning Gesang, sarana netepi Tri Sila lan Panca Sila.
+4. Apa perlune sira dumadi urip?
+Wangsulan:
+Kangge warana utawi lantaran mbabaraken karsaning Pangeran ingkang langgeng.
+5. a. Apa kuwajibanira?
+Wangsulan:
+Ngestokaken dhawuhing Pangeran, inggih punika supados kita sami gesang rukun kanthi dayan-dihayan tuwin samad-sinamadan kalayan sadaya sifat gesang, reksa-rumeksa murih raharjaning gesang bebrayan.
+5. b. Lan sawise kuwajibanira rampung, sira bali menyang endi?
+Wangsulan:
+Wangsul dhateng Asaling Gesang, inggih punika wangsul dhateng Allah, kamulaning sagung dumadi.
+5. c. Apa sangunira, yen sira mulih marang omahira kang sejati?
+Wangsulan:
+Sangu kula eling dhateng Sangkan Paraning Gesang, inggih punika: eling dhateng Suksma Kawekas, eling dhateng Suksma Sejati, Panuntun saha Guru kula ingkang sejati. Kanthisantosaning manah pitados badhe wangsul dhateng Allah sarana ngrasuk kasucian, inggih punika iklas lan rila nilar sadaya katresnan kula.
+Kados makaten Bapak atur wangsulan kula, leres lepatipun mugi keparenga Bapak paring dhawuh."
+
+Bapak Pangrasa, kanthi manthuk-manthuk kawistara rena ing panggalih mirengaken atur wangsulanipun Sadherek Prabawa tumrap pandangonipun Sang Guru Sejati, lajeng paring dhawuh kairing manising esem ingkang nengsemaken manah kados ing ngandhap punika:
+"Prabawa, atur wangsulanmu tumrap pandangone Sang Guru Sejati, saka panglarasku wis bener.
+Ing samengko kabeh wangsulanmu kang wus kokandharake mau dakanggo mangsuli pitakonmu. Yaiku, yen pangertimu bab Sangkan Paraning Urip wis rumesep ing jiwa-ragamu, lan kowe wis rampung anggonmu netepi sesanggeman lan kuwajibaning urip, ngestokake dhawuhing Allah, apa dene sarat-sarat kanggo balimu sumiwi ing ngayunaning Allah wis kebadan dadi kasunyatan, kowe bakal lestari bisa ngombe 'banyu suci', iya 'banyu panguripan' kang nguripi sagung sifat urip. Mangkono uga 'pura panunggal' tetep menga kanggo kowe.
+Mung welingku, poma lakumu ing dalaning kasunyatan kang ngati-ati, awit akeh sandhungane, yaiku wama-warnaning godha rencana kasar lan alus, kaya kang wis dakandharake ing ngarep, kang bisa nibakake lakumu ing dalaning kasiswan lan dadi jalaran keploroding drajat kasiswanmu."
+
+Sadherek Prabawa:
+"Adhuh, Bapak pepundhen kula, sepinten ageng tuwin raosing manah kula boten saged kula gambaraken kanthi tetembungan, sareng kula nampi dhawuhipun Bapak, bilih atur wangsulan kula tumrap pandangonipun Sang Guru Sejati punika leres.
+Turnrap kula, ing sapunika sampun cetha-wela-wela, ngeglan-geblak boten mawi aling-aling ma1ih ing atasing lampah nggayuh kasunyatan jati, wangsul dhateng Asal Kamulaning Gesang Langgeng. Raos ajrih tuwin samar-samar anggen kula badhe wangsul dhateng Kamulaning Gesang sampun sami sirna, boten wonten pepalang ingkang ngalang-alangi.
+Upami tiyang badhe numpak sepur makaten kula sampun tumbas karcis klas 1, tur mawi 'plaats bespreking' mila kula boten kuwatos bab panggenan kangge linggih. Sepur ingkang badhe kula tumpaki wau sepur 'kilat' mawi 'air conditioning' ('alat pendingin'); adhuh, nyaman sejuk sanget badhe lampah kula ing margi. Kula kantun siyaga ngentosi bidhaling sepur saking 'setasiun Donya' dhateng 'ibu kota Alam Sejati', kanthi dipun 'kaWal'dening Sang Guru Sejati.
+Ananging Bapak, manah kula ingkang sampun kraos asrep, jinem saking dayaning Hastha Sila, ingkang kula candra kados dene 'air conditioning' wau, sapunika santun kadunungan raos nalangsa tuwin prihatin, sareng kula mireng dhawuh pepengetipun Bapak, supados lampah kula ing margining kasunyatan jati ingkang ngatos-atos, sampun ngantos kesandhung warni-warnining godha rencana, ingkang saged ndhawahaken utawi kaploroding drajat kasiswan kula. Amargi kula rumaos dereng sampurna anggen kula mangun kasucian. ·
+Saking pangestunipun Bapak, kula sampun boten keguh dening godha rencana sekawan prakawis, inggih punika:
+1. Kula boten ketarik dhateng 'klubuking ulam ing kedhung' .
+2. Kula boten kaget mireng 'kencringing ringgit'.
+3. Manah kula sampun kumawi boten badhe saged kalebetan 'baksil'kuma....
+4. Kula boten gumingsir utawi ajrih dening kamayaning golongan 'kiri', inggih punika para titah abadan latu: dewa, jim, setan, tuwin sapanunggilanipun, amargi kula sampun pinaringan ngampil sanjata dibya 'SH' kangge nyingkiraken pangrencananing golongan 'kiri'.
+Dene ingkang saben-saben damel regeding kasucianing manah kula ingkang lajeng nuwuhaken raos ingkang nalangsa tuwin prihatin punika, anu Bapak, ... adhuh, kula bo-bo-bo-ten sa-sa-saged matur."
+
+Sadherek Prabawa boten saged nglajengaken aturipun amargi lajeng sumungkem ing ngarsanipun Bapak Pangrasa kanthi nangis kami sesegen, senggruk-senggruk.
+Bapak Pangrasa tanggap kanthi ngelus-elus bathukipun Sadherek Prabawa, katingal sanget anggenipun ngesokaken welas-asihipun dhateng putranipun ingkang bekti tuwin mituhu, wasana paring pangandika minangka panglipur:
+"Wis, wis, Prabawa, biraten sungkawaning atimu. Apa kang nyababake tuwuhing rasa panalangsa lan prihatin, nganti ngruntuhake waspa. Coba wedharna kang tetela lan prasaja mbok manawa aku bisa mitulungi ngenthengake panandhanging batinmu. Aja cilik atimu, yen kowe rumangsa durung sampurna anggonmu mangun kasucian, amarga ing atasing manungsa iku ora ana kang sampurna. Sanadyan wong wis tumeka ing drajat budi luhur, jumeneng wiku, pandhita apa kyai, ewa dene meksa isih ana kekurangane,isih bisa tumindak luput. Dene kang sampurna iku iya mung Allah pribadi, Kang Mahasuci, Kang Mahakuwasa, Kang Mahawicaksana, Kang Mahaadil, Kang Mahamurah lan asih. 
+Prabawa, kowe lagi tumeka drajat siswa. Ing atasing siswa isih perlu marsudi utawa sinau bisane munggah tataraning drajat kasiswane. Kanggo ngunggahi drajat kang luwih dhuwur, siswa perlu diteter utawa diuji. Mulane, angger Prabawa, aja sungkawa atimu yen kowe durung bisa lulus anggonmu nempuh ujianing urip, amarga susahing ati iku mahanani pepeteng kang nglimputi dalaning kasiswan, satemah lakumu kandheg ing dalan prapatan, lali marang tujuaning urip."
+
+Sadherek Prabawa:
+"Dhuh Bapak, pepundhen kula, sareng kula mireng dhawuhipun Bapak punika wau, pepeteng ingkang nglimputi manah kula kados sinapu, manah kula kraos asrep malih. Upamiya angkat-junjung makaten ingkang suwaunipun awrat lajeng kraos entheng, manah kula boten mbentoyong malih. Dene ingkang nyababaken tuwuhing raos nalangsa tuwin prihatining manah kula punika, amargi kula dereng saged sumingkir saking satunggaling godha, saking panganggep kula ingkang awrat piyambak, inggih punika, waleh-waleh punapa Bapak, sanadyan umur kula sampun 'dua kali pemuda', ewa dene manawi kula sumerep 'gebyaring wentis kuning', manah kula taksih trataban, lajeng kapencut kumedah-kedaha andarbeni ingkang gumebyar pindha kencana sinangling wau. Langkung-langkung manawi kula nuju kapandukan ing kedhepliringing netra ingkang kocak saha esemipun sang Kusumayu, adhuh, Bapak ... remuk manah kula, pindha panjang dhawah ing sela; kumepyuring manah lajeng supe purwa-duksina, supe bilih kula sampun drajat siswa.
+Kawontenan kados makaten wau nabet ing angen-angen ngregedi manah kula ingkang sampun kula suceni kanthi 'toya suci' Panca Sila. Saya ageng panalangsa tuwin prihatining manah kula, manawi kula ngengeti sabdanipun Sang Kristus, kasebat ing Kitab Suci lnjil, Markus Bab 7, ayat 21 lan 23:
+'Jeneh saka ing jero, iya saka atine manungsa kono tuwuhe pangangen-angen ala, kayata: bandrek, jina, gawe pati!'.
+'Sakehe piala iku tumuwuhe saka ing jero, sarta padha njemberi marang manungsa'.
+Sabda kasebat ing nginggil punika saking panyuraos kula makaten:
+Sanadyan gegeter 'gebyaring wentis kuning' ingkang lumebet ing batos wau namung mandheg ing pangangen-angen, boten dipun kantheni pakarti, ewa dene sampun njemberi kasucianing manah, utawi sampun kalebet pandamel dosa.
+Awit saking punika, Bapak, kula lajeng rumaos, bilih anggen kula mangun kasucianing manah dereng sampurna.
+Warni-warnining godha-rencana kados ingkang sampun kula aturaken kasebat ing nginggil, kula sampun saged nyingkiri, nanging namung bab 'wentis kuning' punika Bapak, kula rumaos dereng saged 'mengatasi'. Dhasar ing jaman sapunika saya kathah 'mode' pengagemanipun para wanita ingkang saya nambahi 'gebyaring salira', ingkang nggigah asmara, kadosta 'shanghai dress', 'you can see', tuwin sapanunggilanipun.
+Kangge nyuda gegetering 'wentis kuning' ingkang mblerengi manah kula wau, kula nate nyobi ngangge kaca tingal cemeng, saking gagasan kula manawi ingkang 'gumebyar' wau katingal cemeng, boten damel ebahing manah kula; nanging asilipun jebul malah saya nesek-ngangsek panyawang kula. Ingkang punika Bapak, kula nyuwun dhawuh kados pundi saged kula sumingkir saking godha rencana 'gebyaring wentis kuning', ingkang ngregedi kasucianing manah kula punika."
+
+Bapak Pangrasa:
+"0, putraku Ngger, Prabawa, dadi kang njalari nalangsa lan prihatining atimu iku, amarga kowe rumangsa yen kasucianing atimu saben-saben rinegedan dening gegeter 'gebyaring wentis kuning', kang tumanduk lumebu ing atimu. Dhasar nyata Prabawa, manawa obahing angen-angen kang tumuju marang piala, sanadyan ora utawa durung dikantheni pakartining badan jasmani, tindak-tanduk, iku wus ateges nrajang kasusilaning batin, utawa klebu panggawe dosa, miturut dhawuhing Sang Sabda, kaya kang kokwedharake mau. Murih saya terange maneh, dakpethikake dhawuhing Gusti kang kasebut ing kitab suci lnjil, Matheus Bab 15, ayat 18: ,Nanging sabarang kang kewetu saka ing cangkem, iku pinangkane ing ati, sarta yaiku kang njemberi marang manungsa'; 19: 1Dene kang tumuwuh saka ing ati iku kayata: pangangen-angen ala, gawe pati, bandrek, laku jina, nyolong, paseksi goroh, panyatur ala'.
+Mulane Prabawa, ing sabisa-bisa angen-angen kudu direksa aja nganti obah isi piala.
+Gegeter saka njaba kang bisa lumebu ngregedi batin lan kang ora gampang disingkiri utawa tinolak dening sadhengah wong, priya apa wanita, wredha apa mudha, iya mung bab siji kuwi, yaiku bab 'gebyaring wentis kuning'. Mulane akeh ing antarane para ulah kautaman lan kasucian kang banjur tiba keplorod saka drajating kasiswan, mung jalaran saka keblerengen 'gebyaring wentis kuning'.
+Kejaba para santosa ing budi, yaiku para kang cinedhak lan kinasih ing Gusti, kabeh manungsa ora bisa sumingkir saka warna-warnaning panandhang, uga ora gampang anggone nolak gegeter kang gumebyar ing bawana iki. Kepriye bisane cinedhak lan kinasih ing Gusti? Ora liya dedalane manawa para calon siswa utawa umat mituhu dhawuhing Gusti, netepi dhawuh wejangane Sang Guru Sejati, kang cinandhi ing pustaka Sasangka Jati, ngrasuk sesanggeman Dasa Sila kang sinuci.
+Prabawa, kowe aja cilik lan uwas atimu, sanadyan kasucianing atimu saben-saben rinegedan dening gegeter 'gebyaring wentis kuning', waton kowe banjur eling martobat ing Pangeran, ngadhep ing ngarsaning Sang Guru Sejati ing telenging ati sanubari, sumujud kanthi nangis kandhas ing batinmu, atimu kang gluprut 'endhuting asmara' mau bakal sinucekake dening sihing Sang Guru Sejati, Juru Panebus Dosa, Juru Panglipur Wuyung, Juru Pituduh Dalan Bener. Sang Guru Sejati ora bakal negakake marang siswane kang nyata bekti lan mituhu.
+Prabawa, aku nekseni manawa Sang Guru Sejati iku nyata murah lan asih apa dene tansah paring pangayoman, tuntunan, lan pepadhang marang para siswa kang padha temen-temen netepi Tri Sila lan Panca Sila, iya para siswa kang padha gelem umareg ing ngarsa-Ne.
+Mangertia putraku, manawa gegeter kang gumelar ing bawana iki ora bisa ditolak kanthi piranti apa bae. Sakehing gegeter bakal padha sumingkir, tegese ora "bisa nggoncangake katentreman lan ngregedi kasucianing batin, yen katolak kanthi santosaning ati. Dene ati bisa santosa yen isi pracaya, manawa ati kang sinuci iku 'dhampar palenggahaning' Gusti. Awit saka iku Prabawa, piwelingku marang kowe, uga marang putra-putraku sakabehe, yen angen-angenmu nuju obah sabab kataman gegeter saka njaba, bab apa bae, lan obah marga ginugah dening napsu kang tumuju marang panggawe kang nyulayani kautaman lan kasusilan, ing sanalika iku banjur ngliyepna netra kanthi megeng napas sawetara, banjur nindakna Pangesthi angka 2.
+Kejaba kadi iku Prabawa, supaya atimu tetep suci lan kuwat, ora bakal katarambas dening gegeter 'gebyaring wentis kuning' lan liya-liyane godha rencana, ing saben plethek lan suruping srengenge, sawise mastuti ing Gusti nindakna Pangesthi 4 (nyenyuwun sihing Sang Guru Sejati). Yen pangesthimu kanthi tumemen yaiku bisa bebles kandhas ing telenging sanubari, kang dhinasaran pracaya, kowe bakal bisa sumingkir saka sakehing godha rencana, lan kowe bakal bisa nindakake kuwajibanmu lair batin kanthi sampurna, awit saka sih, tuntunan, pepadhang, lan pangayomane Sang Guru Sejati.
+Kepriye Prabawa, apa kowe wis bisa nampa pitutur, nasehat, lan piweiingku? Yagene teka banjur mesam-mesem lan pengkirag-pengkirig kaya wong gila digremeti uler jedhung; coba pratelakna kang prasaja, apa sababe mangkono."
+
+Sadherek Prabawa:
+"Bapak, salebetipun kula nampi dhawuhipun Bapak punika wau, asreping manah kula kados·ginarujug toya es ing wand enjing. Manah kula ingkang suwaunipun ngombak-mawalikan pindha alun samodra ingkang tihempuh ing prahara, sapunika wangsul lerem, tentrem, jinem, ayem.
+Manah kula ingkang suwaunipun reged, sapunika kraos sinucekaken. Amargi angen-angen kula ingkang suwaunipun 'ginubet utawi ginubel' dening 'gebyaring wentis kuning', sapunika sampun saged uwal.
+Dene anggen kula mesam-mesem punika boten sanes saking daya lubering raos bahagia ingkang ngebeki batos kula, dene kula sapunika sampun kaparingan sarana kangge panolaking sadaya gegeter ingkang gumebyar ing bawana punika.
+Manawi Bapak ndangu, sabab punapa kula pengkirag-pengkirig kados tiyang gila rinembetan uler jedhung punika, anu Bapak, baresipun kula kengetan wekdal'kagubet utawi ginubel' dening 'wentis kuning', ingkang kala semanten tansah cumanthel ing padoning mripat kula, bebasan gumantung ing jejantung. Kula lajeng kengetan sulukipun Ki Dhalang ingkang nggambaraken kasmaranipun priya dhateng wanita ingkang endah ing warna, manawi kula boten klentu makaten, Bapak."
+
+Sadherek Prabawa lajeng suluk:
+"Bumi gonjang-ganjing, langit kelap-kelap, katon lir kincanging alis risang maweh gandrung, sabarang kadulu, wukir moyag-mayig, saking tyas baliwur-lumaris anggandrung.
+Sulukipun Ki Dhalang ingkang kula tirokaken punika wau, kula kiyataken leresipun, amargi kula sampun nate ngalami piyambak, inggih punika wekdal kula tinunggilan dening 'sang Hyang Asmara'.
+Nanging tumrap kula: bumi boten 'gonjang-ganjing', langit boten 'kelap-kelap', wukir boten 'moyag-mayig', namung raos ingkang kula raosaken makaten: linggih boten jenak, nedha boten eca, nyambut damel boten jenjem, yen dalu boten saged tilem, sinau jalan buntu, saya dangu, saya nggladrah.
+Bapak, pangalaman kula inggih punika:
+Kula sumerep gebyaring lintang ing wanci dalu, rumaos kula dipun pleroki dening kekasih kula, ingkang mripatipun sumorot pindha kartika.
+Kula sumerep sekar mawar ingkang abyor ing latar, rumaos kula sumerep gelungipun kondhe ingkang peni, rinengga ing sekar melathi, nambahi merak ati. 
+Kula nuju lumebet ing toko sumerep sinjang 'Tiga Negeri', ingkang edi-peni, sakala sang pindha Ratih katingal ing netra, lajeng ngudarasa, 'Saiba gandes-luwes-pantes yen ngagem nyamping punika'. Nyut, lajeng kepengin numbasaken, nanging sayang ... reginipun kula boten keconggah,hla wong satunggal sewu rupiah.
+Makaten selajengipun. Eh, pancen gawat yektos pangaribawanipun 'Sang Hyang Asmara' punika. Tujunipun kula lajeng sowan Bapak,saha lajeng kaparingan dhawuh warni-warni, ingkang njalari tangining jiwa, saha lajeng mangertos:
+1. Lampah kautamaning gesang,
+2. Tujuaning gesang,
+3. Sangkan paraning gesang.
+Upami kula boten tumunten sowan Bapak, saged ugi kula dados pasienipun Pak Dr. Mantri; inggih yen cekap 'obat jalan', manawi kedah opname ing 'Rumah Sakit Jiwa', harak inggih memelas yektos. Hemmm,inggih punika Bapak,ingkang murugaken kula kala wau pengkirag-pengkirig kados gila uler jedhung, kengetan lelampahan kula wekdal kula kasengsem kungkum ing 'kedhung asmara'.
+Kula rumaos begja kemayangan dene kula pinareng meningi sugengipun Bapak, saha kula saged nyelak sowan ing ngarsanipun Bapak. Inggih amung panjenenganipun Bapak ingkang dados lantaran mentas kula saking kedhung jejember dhateng kasucian, saking pepeteng dhateng pepadhang sejati, saking margi sasar dhateng margi leres, saking papa dhateng kamulyaning gesang. Kula ngaturaken genging panuwun saba dahat ing pamundhi kula sadaya dhawuhipun Bapak.
+Kula saweg mangertos sapunika, bilih pangesthi angka 4 punika jembar sanget teba lan kasiyatipun."
+
+Bapak Pangrasa:
+"0, kaya mangkono ta sebabe anggonmu mesam-mesem lan pengkirag-pengkirig iki mau. Sukur-sukur, dene sakehing pituturku bisa dadi jalaran tangining jiwamu, lan kowe wis rumangsa uwal saka bebandaning asmara kang nggodhi jiwamu, ngregedi kasucianing ati, kang dadi 'dhampar palenggahaning' Gusti.
+Prabawa, dhasar nyata pangesthi angka 4 iku yen kaesthi kanthi dhedhasar pracaya lan kasucianing ati, gedhe banget kasiyate. Nanging kowe kudu mangerti manawa pangesthi angka 1 tumeka angka 4, lan liya-liyane iku dudu donga, rapal, japa mantra, uga dudu gunadhesthi, kang jarene isi daya panguwasa, kleru yen mangkono panganggepmu. Lan uga aja dianggep mung kaya dene 'formulir' panyuwunan.
+
+Mangertia, pangesthi kang dakwenehake marang kowe kabeh iku peparinge Sang Guru Sejati, minangka 'tali penggandheng' antarane kawula-Gusti, siswa marang Sang Guru Sejati. Mula yen anggone nindakake pangesthi bisa rumesep nembus ing rahsa jati, iya ing telenging ati sanubari, pangesthi mau banjur dadi 'wadhah' kang nadhahi tumetesing 'banyu suci', yaiku sihing Sang Guru Sejati. Dene kababaring sih iku jembar banget tebane.
+Nanging pangesthi kang mung diucapake ing batin apa ing lesan, ora dhinasaran pracaya lan sucining pangesthi, iya tetep dadi tembung-tembung kang diapalake, tegese ora ndarbeni daya apa-apa tumrap kang nindakake pangesthi kaya mangkono iku.
+Awit saka iku putra-putraku sakabehe, bab pracaya marang Tripurusa kudu dipupuk aja nganti surut utawa onya, yen putra-putraku sakabehe padha kepengin tetep winengku ing suka basuki, ayem tentrem ing donya tumekaning delahan."
+Sadherek Prabawa, Kemayan, tuwin Pangaribawa, sami ndheku saha ambata-rubuh aturipun:
+"Dhawuhipun Bapak kita luhuraken, tuwin badhe kita estokaken."
+
+Wasana Sadherek Kemayan lajeng sumela sumambet nanggapi aturipun Sadherek Prabawa:
+"Dhimas Prabawa, atiku krasa trenyuh banget, wektu Dhimas sumungkem ing ngarsaning Bapak kanthi karuna atawan-tangis. Sumedhoting atiku narik wetuning waspa, kanthi ngudarasa sajroning wardaya:
+'Gek kena godha apa Adhiku iki, kang nembe wae nampa wahyuning Allah, kinarilan lumebu ing 'pura' pinarengake 'ngombe banyu sci', 'banyu panguripaning' sagung dumadi, manunggal lan Sang Guru Sejati; apa ora kuwat nampa wahyu?' Mangkono panguda-rasaning atiku, Dhimas.
+Nanging, bareng aku krungu aturmu kang prasaja marang panjenengane Bapak, kang nyababake panalangsa lan prihatining atimu iku jalaran kowe rumangsa durung sampurna anggonmu mangun kasucian, awit atimu tansah rinegedan dening gegeter 'gebyaring wentis kuning', seseging dhadhaku banjur longgar. Luwih-luwih bareng aku krungu Dhimas ngagem... kaca mata ireng kanggo sarana nolak 'gebyaring sang pindha kencana', nanging iktiyare Dhimas mau cabar ora dadi, kepara gegeter mau malah ndadi, neseg-ngangseg rumesep lumebu ing ati.
+Aku kapeksa geli marang rerigene Adhi, kang niyate njaga resiking ati, jebul malah kalebon 'tali' nggodhi ati, talining asmara, panerak paliwara.
+Ora Dhimas, barese bae, yen Dhimas nuju ketaman- gegetering 'Wentis kuning', iku apa iya banjur koktanggapi kanthi tandang-tanduk, apa mung mandheg ana ing pangangen-angen bae."
+
+Sadherek Prabawa:
+"Kangmas, kula boten tedheng aling-aling, manawi kala rumiyin, saderengipun kula lumampah ing margining kasiswan tuwin kautaman, pancen inggih makaten. Ngantos kula kawentar dipun juluki 'Hidung Belang', bebasan boten kenging 'thuk-mis'. Ingkang kula emba Sang Arjuna, dhasar wekdal kula mudha pancen inggih radi 'meret' (bregas), dados sekar lathinipun para kenya, wonten ingkang marabi 'gus-reng-nis', kados Raden Narayana.
+Nanging ing sapunika kula sampun martobat yektos, upami prajurit sampun seleh dedamel, upamia dokter makaten sampun pensiun, boten praktek malih. Kejawi kula sampun be-el-te-we, kula niyat badhe nuceni jiwa-raga kula, amargi inggih namung kasucian punika ingkang minangka 'busana' anggen kula wangsul sumiwi ing ngarsaning Gusti.
+Awit saking punika, kula nalangsa lan prihatin sanget ngantos karuna sesambat ing ngarsanipun Bapak, dene angen-angen kula kala-kala taksih ebah yen ketaman gegetering 'Wentis kuning'1 ingkang lajeng ngregedi kasucianing manah kula, ingkang sampun kula kumbah resik kanthi 'toya Panca Sila', sanadyan ebahing angen-angen wau boten kula tanggapi tandang-tanduk.
+Ananging Kangmas, ing sapunika, sasampunipun kula gadhah 'sanjata' dibya peparinganipun Bapak, jiwa kula kraos tambah kiyat, kula yakin, sanadyan kula pinanggih 'widadari dharat', manah kula boten badhe goncang malih."
+Sadherek Kemayan gumujeng latah sumambung:
+"0, Dhimas, adhine pun kakang, pancen baut lan cucut temenan. Sokur, ta sokur, yen Adhi ing saiki wis seleh gegaman, ora praktek maneh, ya mung kala-kala wae isih sok 'teori', amarga angen-angen sok obah dening gegeter eseming sang 'Retna-dewi'.
+Mung piwelinge pun kakang, pamusthine sanjata dibya peparinge Sang Guru Sejati lumantar panjenengane Bapak, kang santosa supaya Adhi bisa sumingkir saka sakehing panggodha. Lan aja sok kibir, Dhimas, prabawane 'widadari dharat' iku ngedap-edapi temenan, hlo!
+Dhimas, kowe kuwi teka seneng temen nyekak tembung kang gawe kodhenging pikirku, kayata: dhek sasi kepungkur kae tembung 'ga-nyu', enggonku mikir nganti ngelu, saiki gawe tembung cekakan maneh kang aku durung tau krungu, yaiku: 'thuk-mis, gus-reng-nis, be-el-te-we', iku apa, judheg anggonku mikir, kok baut temen gawe guyu ta, Dhimas, kowe iku."
+
+Sadherek Prabawa:
+"Kangmas, tembung ringkesan wau arak sampun kalebet ing 'kamus prenesan', inggih punika: thuk-mis, tegesipun bathuk klimis; gus-reng-nis, tegesipun bagus ireng manis; be-el-te-we punika yen riningkes malih dados bl-tw, dene yen kebabar wetahing tembung: balung tuwa.
+Kangmas, gumuyu punika langkung sae tinimbang nesu; ngendikanipun Bu Wahyi, 'Lachen is gezond', inggih punapa inggih.
+Kejawi saking punika Kangmas, kula boten pisan-pisan kibir, kula namung pitados dayaning pangesthi peparinganipun Sang Guru Sejati. Awit pangesthi wau yen katindakaken kanthi dhedhasar kapitadosan saha sucining pangesthi, badhe dados tangsul panggandheng ing antawisipun kawula-Gusti, siswa kaliyan Sang Guru Sejati, utawi dados 'wadhah' kangge nadhahi tetesing sihipun Sang Guru Sejati, ingkang isi soroting kawicaksanan, awujud pepadhang, ingkang sumunar ing telenging batosipun para siswa, tuwin daya panguwasa, ingkang saged ndayani kiyating jiwa raga, rahayuning gesang saged sumingkir saking rubeda. Kados ingkang sampun kadhawuhaken dening Bapak, woh utawi babaraning pangesthi wau sampun dipun undhuh utawi dipun raosaken dening para siswa ingkang sami netepi Tri Sila lan Panca Sila. Awit saking punika, ngestokaken dhawuhipun Bapak, kula badhe ngagengaken kapitadosan, inggih punika pitados dhateng Tripurusa (Pangeran ingkang Mahatunggal), ingkang sasana ing telenging batos kita ingkang sinuci. Manawi kapitadosan kula ageng, kula badhe pinareng ngampil panguwasanipun Sang Guru Sejati, sanadyan bebasan namung saluguting kolang-kaling, satemah kula saged nolak sadaya godha rencana tuwin sumingkir saking rubeda.
+Ing pustaka Sasangka Jati, katerangaken: 'Pracaya iku wadhah ing panguwasa. Sampurnaning pracaya dadi panguwasa'.
+Keterangan ingkang makaten wau mirib utawi laras kalayan sabda suci ingkang kawrat ing kitab suci Injil. Mattheus Bab 17 ayat 20:
+'Pangandikane Yesus: Iku saka cupeting pangandelmu; dene satemene pituturku ing kowe: Saupama kowe nduwea pangandel sawiji sawi, mbok kowe nylathonana marang gunung kiye: Sumingkira saka kene, mrana, mesthi sumingkir, sarta bakal ora ana sabarang kang mokal ing atase kowe.'
+Injil Lucas Bab 17 ayat 6:
+'Pangandikane Gusti: Saupama kowe nduwea pangandel sawiji sawi, mbok kowe nylathonana marang wit anjir alas iki: Rungkada, tumanceba ing segara, mesthi ngestokake marang kowe.'
+Kanthi dhedhasar kapitadosan dhateng Tripurusa, ingkang kula bunderaken ing telenging batos lan raos kula, kula yakin, manah kula badhe kiyat, saha boten badhe goncang malih yen kapandukan gegetering donya ingkang mblerengi punika, Kangmas."
+
+Sadherek Kemayan:
+"Dhimas Prabawa, anggonku ngempet guyu, nganti atos wetengku, ngrungokake keteranganmu bab tegese: 'thuk-mis, gus-reng-nis, lan be-el-te-we'. Lagi iki aku krungu ana 'kamus prenesan'. Ayake 'kamus' mau weton 'Pangecapan Idhung Belang'.
+Dhimas, bener kang dadi panemumu, luwih becik ngguyu, tinimbang mecucu-nesu, nanging iya aja kakehan guyu, mundhak metu saka dalan rahayu.
+Dhimas, kowe iku sawijining siswa kang sugih pangalaman lan mumpuni kabeh kawruh (ilmu), agal alus, lan blater. Nistha-papa-utama wis kokalami kabeh. Ing saiki dadi siswa kang mursid lan jatmika, tandang-tanduk prasaja lan susila-anoraga.
+Aku mangayubagya anggonmu sumedya nggumolongake lan nggedhekake piandel kang bener, yaiku pracaya marang Tripurusa. Wong kang gelem pracaya marang Tripurusa (Pangeran Kang Mahatunggal) kanthi netepi sarat wolung prakara kaya kang kasebut ing Hastha Sila, dhawuh wejangane Sang Guru Sejati, kejaba bisa nampani tetesing sih pepadhang lan panguwasa, kang bisa nylametake lakune, sumingkir saka warna-wamaning godha rencana lan rubeda, uga ora bakal kombak-kombul ketaman owah gingsiring lelakon kang sinandhang.
+Dhimas, aku mung manjurung puja-puji, muga-muga gegayuhane Dhimas kang luhur lan suci iku bisa kasembadan, awit saka sih tuntunane Sang Guru Sejati.
+Kejaba kadi iku Dhimas, aku arep takon, nalika Bapak ndhawuhake pandangone Sang Guru Sejati bab Sangkan Paran lan kuwajibaning urip, pangrasane Dhimas banjur karasa ngandhelong, kang njalari ngalokro-kendhoning badan wadhag, ing sakala iku Dhimas kaya-kaya karasa uwal saka bebandaning donya lan sumingkir saka pakartining maya.
+Lan ing wektu iku Dhimas banjur eling marang pangrasane Pakdhe Narto ing tanggaping warsa 1954, ginubah ing sekar Kinanthi, kang surasane bisa nggugah pangrasane Dhimas, kepengin bali marang Sangkan Paraning Urip.
+Dene pitakonku, kepriye pangrasane Pakdhe Narto mau, mbok coba terangna, aku kepencut lan kepengin ngerti, mbokmanawa bisa nambahi panjurung lakuku tumuli tumeka ing gegayuhaning urip kang sejati.
+
+Sadherek Prabawa:
+"Kangmas, kula sampun panjenengan 'unjuki' pangalembana, mundhak wuru, manawi kula wuru badhe kesiku, wekasan lumebeting wuwu.
+Kasinggihan dhawuhipun Kangmas, lelampahaning gesang kula punika upami saged kaukur mawi pirantos makaten, minggah mandhap, kados dene lampahing rah ingkang kalebetan baksil malaria. Nistha-papa-sangsara mblunthah sampun kula lampahi, warni-warnining kawruh utawi pitedah kula sinau tuwin kula lampahi, sadaya wau namung mandheg dados kawruh, boten saged dados usada waluyaning wuyung. Mila kula kala-kala sok nglamun kanthi rengeng-rengeng makaten:
+
+**MIJIL**
+
+'Cilik mula cilaka wak mami, manggung dadi lakon, nistha papa sun lakoni kabeh, amung loro kang durung nglakoni, mukti lawan mati, pundi marginipun.'
+Margi ingkang anjog 'mukti lan mati' wau kula dereng sumerep, inggih punika margi ingkang nuntun dumugi ing sejatining kamukten lan patitising pati, pati ingkang teges wangsul dhateng Sejatining Gesang.
+Anggen kula madosi margi wau sarana maguru mrika-mriki, kala-kala inggih medhukun, saha maos kitab-kitab suci, nanging meksa dereng manggihaken margi wau. Nanging, sapunika kula rumaos begja kemayangan, dene kula pinareng saged sumerep margi lan margi wau sampun kula ambah kanthi tuntunaning Sang Guru Sejati, inggih punika margi leres, inggih margi utami ingkang anjog ing karahayon, katentreman, tuwin kamulyan langgeng.
+Sinten ta, ingkang paring pitedah margi leres wau? Boten sanes panjenenganipun Bapak Pangrasa, Bapa Guru pepundhen kita.
+Kangmas, kula ngaturaken genging panuwun paring panjenengan panjurung puja-puji, mugi-mugi andayani kasembadaning gegayuhan kula.
+Kejawi saking punika, panjenenganipun Kangmas kapencut kepengin pirsa, kados pundi pangraosipun Pakdhe Narto ing tanggaping warsa 1954, sinerat ing 'Sesotya Rinonce', ingkang kula aturaken suraosipun saged nggigah raos kula kepengin wangsul ing Sangkan Paraning Gesang.
+Ingkang makaten wau sayektosipun inggih namung tumrap para ingkang sampun tangi jiwanipun tuwin ingkang sampun tinarbuka manahipun. Nanging tumrap pun Cubluk, ingkang jiwanipun taksih tilem kepati, inggih boten saged nggigah raosipun kepengin wangsul ing Sangkan Paraning Gesang.
+Sekar Kinanthi kasebut mawi 'tiga bahasa'inggih punika: Jawi, Indonesia, lan Welandi. Ing sanes wekdal Kangmas kula caosi 'Sesotya Rinonce'. Ing sapunika Kangmas kula aturi mirengaken, amargi kula sampun apal."
+
+Sadherek Prabawa lajeng nembang macapat kados ing ngandhap punika:
+
+## KINANTHI PAMBUKA PATI
+**(Pangraosipun Pakdhe Narto ing tanggaping warsa 1954)**
+
+(1) Kanthi pepadhang Sang Guru, aniti rasaning urip, kang dhingin rasaning raga, kadwi rasaning rohani, kaping tri rasaning Suksma, minangka pambuka pati.
+(2) Pati kang patitis tuhu, bali marang tuking urip, urip asal saking gesang, gesang kang kinikib pati, pati kang mbuka warana, malige Jatining Urip.
+
+**1. Rasaning raga (badan wadhag)**
+
+(3) Badan wadhag saya susut, surut kerkating pakarti, bayu kadya linolosan, lesu layu angalentrih, kang penyakit teka lunga, gilir gumanti ndhatengi.
+(4) Weteng mules banjur murus, watuk-pileg masuk-angin, napas seseg megap-megap, lir mina koncatan warih, sesambat minta usada, sarwi nalangsa ing Widi.
+(5) Kadiparan raganingsun, dene tan kadya ing nguni, duk nalika masih mudha, gagah lir Harya Setyaki, sehat kuat bersemangat, sanggup berjuang dan berani.
+(6) Sinerang ing angin lesus, kodanan tan krasa atis, kepanasan tan rinasa, nambut kardi siang ratri, badan wadhag tan ngresula, beda timen lan saiki.
+(7) Klisikan yen arep turu, les anendra gragap tangi, watuk makikil anggugah, ngentekke tablet Codein, yen mangan tan krasa enak, wit untu wus akeh pamit.
+(8) Adhuh-adhuh raganingsun, yen rinasa angranuhi, ginagas saya ngalela, karasa laraning jizim, badan wadhag krasa onya, nyedhaki rusak wor bumi.
+
+**2. Rasaning jiwa (angen-angen)**
+
+(9) Rasa krasa tumalawung, ngandhelong rasaning ati, pindha layangan kumleyang, lumembak mungging wiyati, wit pedhoting 'talirasa', kang tumali ing Roh Suci.
+(lO)Saking daya prabanipun, kengising sunar Hyang Widi, narik rasa panarima, rila legawa ngoncati, kanikmataning bawana, kang nyata owah lan gingsir.
+(ll)Santosaning tyas pinesu, datan nedya nolah-nolih, anuju marang kasidan, sangkan paraning dumadi, ngesthi sih tuntunanira, Sang Maha Guru Sejati.
+
+**3. Rasaning Suksma (Rob Suci)**
+
+(12)Ayem tentrem kang satuhu, tumanem jro heneng-hening, kalis saliring panandhang, datan mobah lawan mosik, miyat gingsiring kahanan, nora uwas lawan giris.
+(13)Nadyan dumunung jro lumpur, jejembering jagad iki, langgeng suci kahanannya, pindha ron lumbu wor warih, welas asih mring pra titah, dhedhasar urip sawiji.
+(14)Jroning rahsa manabda-yu, 'Wruhanira, heh, pra jalmi, badanira bakal rusak, bali asaling anasir, sira asal saka Suksma, bali mring Suksma Sejati.
+
+**Sambutan dari Pakdhe Narto**
+**Kinanthi**
+(1) Mengingat sabda tersebut, Pak Narto nyiapkan diri, dengan tenang serta iklas, menanti panggilan Widi, dan mohon sih tuntunannya, Sang Maha Guru Sejati.
+(2) Selama waktu menunggu, Pak Narto setia mengabdi, Pangestu ikatan siswa, dari Sang Guru Sejati, menyampaikan wejanganNya, pada semua insani.
+(3) Kar'na hari lohilmakpul, terasa makin 'ndekati, maka Pak Narto bersiap, bikin asrama abadi, di makaman Bonoloyo, jika Allah mem'bri izin.
+
+**Pesan Pakdhe Narto**
+**Kinanthi**
+Breeders zusters van Pangestu, vergeet de heilige leer·niet, stoat vermeld in Hasta Sila, de leer van Guru Sejati, die ons leidt tot Het Ware Pad, eeuwig geluk en bevrijding.
+
+Sadherek Prabawa:
+"Makaten Kangmas pangraosipun Pakdhe Narto anggenipun niti raosing gesang, ing tanggaping warsa 1954, kaprinci tigang prakawis. Inggih punika:
+1. Raosing badan wadhag,
+2. Raosing jiwa (angen-angen),
+3. Raosing Suksma (Roh Suci).
+
+Wasita-di kasebat nginggil, tumrap kula, kejawi saged nggigah raos kepengin wangsul dhateng Sangkan Paraning Gesang, ugi kenging kangge nglipur manah, samangsa kula nuju kasempyok 'gelombanging donya' ingkang damel goncang saha petenging manah kula. Manawi kula lajeng rengeng-rengeng ngidungaken sekar Kinanthi 'Pambuka Pati' wau, pepeteng ingkang nglimputi manah kula kados sinapu dening Sang Pepadhang. Amargi kula lajeng enget bilih kawontenan donya punika ewah gingsir, boten langgeng, saha enget bilih manungsa punika kapurbawasesa dening hukum angger-angger langgeng."
+
+Sadherek Kemayan:
+"Dhimas Prabawa, sajrone aku ngrungokake anggonmu ngidung Kinanthi 'Pambuka Pati' kanthi lagu kang mranani ati, suwara kang empuk-kepenak bebasan turut usuk, 'merdu merayu-rayu' pindha gendhing kang ngrangin ngumandhang ing angkasa tiniyub ing samirana-mrik, pangrasaku kaya dumunung ing 'alam luyut', badan wadhagku kaya-kaya kumambang ora sumeieh ing lemah. Sabanjure rasa-pangrasaku ora siwah kaya pangrasane Dhimas, kaya-kaya uwal saka bebandaning donya kang cidra iki, bareng aku ngrasakake surasane Kinanthi 'Pambuka Pati', yaiku panitining Pakdhe Narto bab rasaning urip telung prakara. Uga banjur gumaregah nambahi derenging sedya anggonku kepengin bali marang Sangkan Paraning Urip, kanthi ngesthi tuntunane Sang Guru Sejati.
+Dhimas Prabawa, aku nglairake rasa bungah lan banget ing suka panarimaku, dene Dhimas kanthi rena lan eklasing penggalih ngidung kang surasane gawe sengsem mareming atiku lan bisa nambahi derenging pangudi tumrap gegayuhaning urip kang sejati.
+Kejaba kadi iku, aku melu krasa bahagia lan banjur ngunjukake suka sukur ing ngayunaning Pangeran, uga ing padaning Sang Guru Sejati, dene Dhimas ing saiki wis salin 'busana anyar', wis lumaku ing dalan kang anjog ing sejatining kamukten, uga wis meruhi patitising pati, pati kang ateges bali marang Sejatining Urip. Yaiku wis ngambah dalan bener, iya dalan kautaman kang anjog ing karahayon, katentreman, lan kamulyan langgeng, kanthi tuntunane Sang Guru Sejati."
+
+
+
+ 
 
 ```{contents}
 
