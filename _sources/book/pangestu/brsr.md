@@ -413,7 +413,7 @@ KUWAJIBAN KANG KUDU DILAKONI
 DENING PARA KAWULA
 
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Bapak, keparenga kula nyuwun priksa.
 1. Ngengeti piwulang pamudharan utawi panunggal punika piwulang ingkang adiluhung, gawat, tuwin rungsit, punapa piwulang punika inggih kangge sadhengah?
 2. Punapa inggih wonten umat ingkang saged dumugi pamudharan tuwin saged manunggil kalayan Pangeran (dumugi kasunyatan jati)?
@@ -547,7 +547,7 @@ Tundha-tundhaning drajat kasiswan kasebut ing dhuwur ana condhonge utawa mirip y
 1. Sarengat, 2. Tarekat, 3. Hakekat, 4. Makrifat
 Kang mangkono mau yen sari-sarining pituduh dimangerteni lan dilakoni ing samesthine."
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Bapak, kula ngaturaken genging panuwun. Sadaya dhawuhipun Bapak ndamel padhanging manah kula tuwin nambahi kiyating jiwa kula satemah gumaregah tangi badhe nggentur tapa brata, mastuti ing Widi, mituhu dhawuhing Sang Guru Sejati,kanthi pangesthi mugi-mugi korining srimenganti'tumunten menga kangge kula, salajengipun kula pinarengaken lumebet ing 'pura panunggal' awit saking sih tuntunanipun Sang Sejati.
 ·· Dhawuhipun Bapak bab tundha-tundhaning drajat kasiswan punika prayogi sanget tumrap para calon siswa, tuwin sintena kemawqn ingkang sami kepengin nggayuh kasunyatan jati, amargi kenging kangge pedhoman supados lampahipun boten tuna dungkap tuwin kaplengkang saking anggenipun kinggilen panjangka, satemah jangkahipun keplesed. Jalaran sami boten purun ngukur kakiyatan tuwin kawontenaning dhiri pribadinipun, rumaosipun sampun dados murid SMP, mangka Sekolah Rakyat kemawon dereng rampung (lulus) lajeng agahan-gumagah nempuh ujian SMP, inggih mesthi kemawon boten saged lulus, asilipun namung ngelu saking anggenipun mikir angeling aljabar tuwin sapanunggilanipun.
 Kesinggihan dhawuhipun Bapak, ing jaman sapunika, nyarengi retuning bawana, kathah sanget 'lemantun buku mlaku' mbeber isining buku, supados kaloka yen sugih ngelmu; makaten ugi kathahipun 'tape recorder' ingkang mider-mider ider 'order'.
@@ -998,12 +998,13 @@ Sadherek Kemayan sumela ananggapi aturipun Sadherek Prabawa kanthi pitaken makat
 "Dhimas Prabawa, apa sababe dene Dhimas saiki kok gembeng, beda temen karo dhek wingi-wingi, apa kang dadi mula bukane, utawa wewadine, coba aku jarwanana, Dhimas."
 Sadherek Prabawa:
 "Kasinggihan dhawuhipun Kangmas, sapunika kula dados tiyang sepuh ingkang gembeng. Nanging kula piyambak boten mangertos punapa sababipun dene kula sapunika gampil katuwuhan raos trenyuh ingkang nyurung wedaling luh. Langkung-langkung manawi kula nuju enget lelampahan, inggih sadaya pandamel dosa ingkang sampun kula lampahi wekdal kula taksih mudha, panangis kula ngantos tandhes-bebles nggerantes, tangis isi panalangsa, anggetuni pandamel dosa, salajengipun martobat ing Suksma. Dene wiwitipun kula dados tiyang ingkang gembeng punika sareng kula tumapak ing margining kasiswan, mituhu ngestokaken dhawuhipun Sang Guru Sejati."
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Dhimas, satemene aku dhewe iya tau ngalami kaya mangkono, nanging saiki aku wis ora gembeng maneh, nadyan mangkonoa tumeka saiki aku durung mangerti, apa kang nyababake gampanging katuwuhan rasa trenyuh kang mbukak ilining luh. Mula bab pangalaman kita iki prayoga nyuwun miterang marang Bapak bae."
 
 Bapak Pangrasa, ingkang tansah migatosaken dhateng putra-putranipun saha midhangetaken wiraosanipun sadherek kekalih kasebat nginggil, lajeng paring dhawuh makaten:
 "Sumurupa putra-putraku sakabehe!
 Tumrap wong kang isih linimputan ing pepeteng amarga anggone ngedohi Sang Pepadhang, lan ngumbar ubaling hawa nafsune, wekasan sang Aku banjur kumalungkung, kumawasa, kumaluhur, lan takabur. Wong kang mangkono iku sifat manungsane kang sejati, yaiku Roh Sucine, kena binasakake sare utawa seda sinalib dening sang Aku, mulane ora ndarbeni rasa welas lan asih, uga ora tata lan susila. Awit saka iku iya ora gampang katuwuhan rasa trenyuh utawa welas marang kasangsaran lan panandhanging liyan, uga ora gampang dipranata murih tata lan susila.
+
 Sang Aku iya bisa katuwuhan rasa trenyuh lan welas kang njalari nganti nangis ngglolo, nanging tangise iku mung tumuju marang pribadine dhewe (kabutuhane dhewe), kayata: nangisi suda utawa ilanging bandhane, kelangan pangkate; trenyuh lan welas marang kekasihe kang nuju nandhang raga lan sapanunggalane.
 Nanging manawa sang Aku mau banjur gelem ngombe 'banyu suci', yaiku gelem lumaku ing dalaning kasiswan, iya dalan kautaman, mituhu angestokake dhawuhing Sang Guru Sejati, ubaling hawa nafsune, kang dadi jiwane sang Aku banjur sirep utawa kalindhih. Surud-sireping hawa nafsu njalari wungune Roh Suci, anggone mentas seda sinalib dening urubing nafsu kewani. Wiwit gumaregahing Roh Suci, sang Aku kang maune galak-ladak-ndhangak banjur sumanak tumungkulian banjur sujud ing ngarsaning Roh Suci. Dene wohing pangastuti njalari tentreming ati lan salining budi pakarti, satemah pangrasane dadi murni. Murni utawa alusing pangrasa gampang katuwuhan rasa trenyuh welas lan asih marang kang padha kawlasasih, yaiku marang kang padha nandhang papa cintraka, sabanjure gelem nindakake budi darma (gelem mitulungi kasangsaran lan panandhanging liyan).
 Mungguh terange salining rasa-pangrasa kaya mangkono mau sawijining kamajuan saka tuntunan kang kailekake dening Sang Guru Sejati marang calon siswa supaya ndarbeni watak welas lan asih kanthi dhasar katresnan marang sagung titah urip. Mula tumrap calon siswa kang wis diwasa lan ngunggahi drajat siswa wis ora gembeng maneh; rasa-pangrasa salin ambeg welas asih marang sagung dumadi, kang dhinasaran kaadilan, dadi ora bot-sih mbedak-bedakake, bebasan ora emban cindhe emban siladan, awit mangerti manawa Sejatining Urip iku siji.
@@ -1012,14 +1013,14 @@ Sanadyan siswa wis ora gembeng, nanging kala mangsa iya isih sok nangis, mung wa
 
 Kejaba kaya kang wis dakandharake ing dhuwur, sababe sawetara calon siswa ana kang dadi gembeng, nanging uga ana wong gembeng, kang jalaran mung saka ringkihing jiwane. Dene ringkihing jiwa sababe ora liya marga ora utawa durung duwe cekelan paugeraning urip kang santosa. Wong kang ringkih jiwane, luwih-luwih yen nandhang miskin utawa kacingkrangan uripe, gampang kasinggung lan rumangsa yen cinamah-disuwiyah (diremehake) dening liyan, kang njalari atine banjur katuwuhan rasa nalangsa kelara-lara, wekasan banjur nangis, terkadhang panangise kanthi ungkeb-ungkeb karo nggedrug-nggedrugake sikile."
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Bapak, kula ngaturaken genging panuwun, sadaya dhawuhipun Bapak wau kejawi nambahi pangertosan ugi damel pamareming manah kula. Pangertosan kula wau kenging kangge 'ngukur' drajating kasiswan kula, sanadyan bab punika ingkang nguningani inggih namung Sang Guru Sejati piyambak."
 
 Bapak Pangrasa:
 "Sukur Kemayan, dene apa kang wus dakwedharake mau kabeh agawe pamareming atimu, lan kena kanggo 'ngukur' dhirimu pribadi ing atasing kasiswanmu.
 Kemayan, mangertia, miturut pepadhang kang wis daktampa,sejatine kowe iku wis lawas tinampa, dadi siswaning Sang Guru Sejati, malah saka pamawasku wis ndungkap dadi mahasiswa, utawa siswa wredha (siswa purnama).
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Adhuh, Bapak pepundhen kula, serambut pinara sasra kula boten nginten manawi kula sampun ndungkap dados mahasiswa, inggih siswanipun Sang Guru Sejati.
 lngkang punika kula ngunjukaken sembah suka sukur ing ngayunaning Sang Guru Sejati, dene tansah paring pepadhang, tuwin pangayoman dhumateng kula, ingkang ngrancagaken lampahing kasiswan kula. Prasetyaning manah badhe nambahi bekti mituhu kula kanthi pangatos-atos, sampun ngantos kesandhung lampah kula ingkang njalari kaploroding kasiswan kula."
 
@@ -1161,7 +1162,7 @@ Dene kang ngunggahake drajate para siswa iku dudu Ingsun, nanging para siswa iku
 Putra-putraku sakabehe!
 Sanadyan Pangeran paring pangebang-ebang bakal matedhakake sih-nugraha marang sadhengah kang padha njembar-njembarake dhawuhing Pangeran, nanging kowe kabeh aja padha ngarep-arep tumedhaking ganjaran mau, amarga yen mangkono, anggonmu njembar-njembarake dhawuhing Pangeran mau ateges kanthi pamrih golek ganjaran; yen mangkono kowe kabeh durung bisa ngunggahi tataran budi luhur."
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Kaluhuran dhawuhipun Bapak. Sareng kula mirengaken dhawuhipun Sang Guru Sejati ingkang panjenengan wedharaken wau, nambahi derenging manah kula anggen kula badhe njembar-njembaraken dhawuhing Pangeran.
 Tanceping manah boten badhe kepengin nampi sih nugrahaning Pangeran, dene pamrih kula, mugi-mugi bangsa kula dadosa umat ingkang utami,luhur budinipun, sami mulya gesangipun, awit saking anggenipun ngestokaken dhawuh tuwin nebihi pepacuhing Pangeran."
 
@@ -1169,7 +1170,7 @@ Bapak Pangrasa:
 "Kemayan, yen kowe wis sumadhiya arep makili pakaryaning Sang Guru Sejati, yaiku nindakake kuwajiban kang luhur lan suci, njembar-njembarake dhawuh wejangane Sang Guru Sejati, iya dhawuhing Pangeran Sejati marang kang padha mbutuhake tuntunan lan pepadhanging Sang Guru Sejati, kejaba kudu katindakake kanthi pangurbanan lan sepi ing pamrih, kowe kudu 'ngrasuk busana sabar' kang ndayani kowe bisa korban pangrasa (perasaan). Amarga kowe bisa uga bakal ngalami digeguyu, dipaido, diremehake, dinyana-nyana sing ora-ora, difitnah, malah terkadhang kowe dianggep wong 'kafir' utawa 'kufur', dening wong-wong kang durung kabuka atine, utawa kang isih linimputan ing pepeteng.
 Kaya kang wis tau dakaiami wiwit tahun 1932 tumeka saiki. Nanging nadyan kaya mangkono rubedane, kowe aja pisan-pisan was lan cilik atimu, Sang Guru Sejati ora bakal negakake, lan tetep paring pangayoman lan tuntunan marang kang padha makili pakaryane, yaiku kang padha ngayahi kuwajiban kang luhur lan suci kasebut: ajak-ajak marang panggawe utama, kanthi lumaku ing dalaning Allah, lan nyegah panggawe dosa, nyingkiri pepacuhing Allah."
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Kula nyuwun berkah pangestunipun Bapak, mugi-mugi kula saged ngayahi kuwajiban ingkang awrat tuwin gawat, nanging ingkang luhur tuwin suci punika. Badhe sapinten cobi utawi pepalangipun, badhe kula tempuh kanthi dhedhasar Tri Sila tuwin ngengeti semboyan 'Sura dira jayaning rat, lebur dening warastra pangastuti', saking sih pengayomaning Gusti."
 
 Bapak Pangrasa:
@@ -1208,7 +1209,7 @@ Kados makaten Bapak atur wangsulan kula, leres lepatipun nyumanggakaken."
 Bapak Pangrasa:
 "Kabeh atur wangsulanmu bener, kang mangkono mau sanyata manawa kowe ngrasakake lan ngestokake dhawuh wejangane Sang Guru Sejati, upama aku winenangake dening Sang Guru Sejati, kowe dakwenehi 'partisara' (ijazah) anggonmu dadi siswa purnama."
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Bapak, kula rumaos begja kemayangan, dene atur wangsulan kula tumrap pandangonipun Bapak leres, ingkang makaten wau saking manah kula boten sanes saking sih, tuntunan, tuwin pepadhangipun Sang Guru Sejati. Mugi-mugi pepadhangipun Sang Guru Sejati tetep sumorot ing batos kula, tuwin kula pinarengna dados lantaran anggenipun Sang Guru Sejati paring tuntunan tuwin pepadhang dhateng para calon siswa.
 
 Bapak Pangrasa:
@@ -1392,21 +1393,21 @@ Kangmas, saya tambah ageng isin kula, sareng Dhimas Pangaribawa nembe punika kau
 2. Dene anggen kula mesu brata kanthi lampah 'ngebleng' utawi 'nyenthong' ngantos pitung dinten laminipun, punika boten nilar dhawuhipun Sang Guru Sejati, inggih punika namung ngengirangi sawatawis bab nedha, ngombe, tilem, tuwin sanes-sanesipun, ingkang boten badhe ngganggu kasarasaning badan wadhag. Ing salebetipun kula mesu brata, kula boten gineman utawi mbisu. Dene minangka jok kekiyataning badan wadhag, kula namung nedha 'ga-nyu'. Dene tilem kula ing saben dalunipun bebasan namung saliyepan, awit kabekta murubing manah ingkang makantar-kantar kepengin sumiwi ing ngarsaning Sang Guru Sejati, nyababaken boten kraos ngantuk utawi arip. Ing wanci sabibaring pameleng utawi manembah, keketeking jantung kula, kula iseni raos gandrung tuwin eling dhateng Sang Guru Sejati, minangka samben kula tansah ngadhep Sang SasangkaJati. -
 Kados makaten, Kangmas, ingkang njalari tuwuhipun raos isin dhateng sadherek enem, Dhimas Pangaribawa, tuwin cara anggen kula mesu brata ing sakadaripun."
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Akeh wong kang padha kataman rasa isin, nanging beda-beda anggone mapanake rasa kang mangkono mau, kayata: kancane manganggo sarwa bregas, banjur rasa isin, yen ora bisa madhani, nganti direwangi numbuk bentus; saweneh, tanggane duwe gawe mantu kanthi pamiwahan kang gedhe banget, banjur kadunungan rasa isin yen ora bisa ngembari, dilabuhi utang selang. Rasa isin kang tuwuh sabab-sabab kaya mangkono mau kudu dibuwang. Dene rasa isin kang dikantheni pangudi-pambudidaya lair batin bisane kasembadan kang dadi gegayuhane kang mulya lan utama, kaya kang tumanduk lan dialami dening Dhimas mau pantes pinuji lan sinudarsana. Uga rasa isin yen nganti tumindak nguthuh utawa nistha, ninggal tata lan susila, iku uga kalebu utama.
 Kejaba kadi iku Dhimas, aku kok durung mudheng, yaiku ing sajroning Dhimas mesu brata kok mung dhahar 'ga-nyu' iku apa, mungguh masakan, masakan apa, aku kok durung tau krungu. Mbok coba, terangna kepriye panggawene lan rasane, apa nyamleng ngono."
 
 Sadherek Prabawa:
 "Kangmas, kauningana, pandamelipun 'ga-nyu' punika mayar lan gampil sanget, dene raosipun keparenga Kangmas ngedhapi piyambak, manawi sampun kula aturi 'resepipun' (caranipun ndamel). Dhaharan 'ga-nyu' punika, Kangmas, prasaja sanget, inggih punika sega lan banyu. Dene terangipun, salebetipun kula mesu brata wau ingkang kula tedha namung sekul thok lan ngombe toya antah, ingkang limrahipun winastan 'mutih'. Dene raosipun keparenga Kangmas ngedhapi, mangke Kangmas saged dhawuh: rasane sepa, suwe-suwe rada pait, awit saking raos kados makaten wau, mila panedha kula ing saben dintenipun kathah-kathahipun namung sakepel."
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Ee, apa tumon, dakkira 'ga-nyu' kuwi masakan modhel anyar, jebul cekakan saka sega lan banyu. Dhimas kok baut gawe lucon kang nganti ngodhengake pun kakang. Kepriye rasane 'ga-nyu' aku wis kerep ngicipi, amarga aku satemene wis kerep nglakoni 'mutih'.
 Kejaba kadi iku, apa Dhimas wis mangerti bab tumanjane tapa brata, coba terangna supaya kena kanggo sesuluh lan tetuladhan marang kang padha durung mangerti bab perlune, tumanjane tapa brata, supaya ora padha sasar-susur lakune."
 
 Sadherek Prabawa:
 "Kangmas, sanadyan kula sampun nindakaken tapa brata ing kadaripun, nanging yen kula kadhawuhan nerangaken bab punika kangge sesuluh lan tetuladhan, kula mboten wantun, amargi kula rumaos kirang seserepan ing bab punika, mindhak ingeseman dening para winasis. Awit saking punika, kula nyuwun mugi keparenga Kangmas nerangaken bab dhodhok-selehipun utawi tumanjanipun tapa brata, supados nambahi pangertosan kula tuwin kenginga kangge sesuluh dhumateng sintena ingkang mbetahaken pangertosan bab tapa brata tuwin manfangatipun."
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "0, Dhimas adhine pun kakang, aku mituruti kang dadi panjalukmu medharake bab tapa brata lan tumanjane, awewaton dhawuh wejangane Sang Guru Sejati kang winedhar ing pustaka Sasangka Jati, dadi dudu saka kawruhku dhewe.
 Sumurupa, bab tapa brata iku wose mung kanggo sarana ngunjara utawa meper ubaling hawa napsu kang tumuju marang tindak kang nyulayani angger-anggering kautaman, kasusilan, lan kaadilan. Uga kanggo nambahi rasa gandrung (tresna) lan rasa cedhak marang kang den bekteni, yaiku anggone kepengin cinedhak lan manunggal marang Sang Guru Sejati.
 Dene tumindake tapa brata mung ngengurangi utawa matesi sawatara bab mangane, ngombene, turune, lan sahwate. Bebasane aja wareg, nanging iya aja luwe, aja kakehan melek, nanging iya aja kakehan turu; mangkono sapiturute, kaangkaha dhewe kang sarwa sedheng aja kongsi keladuk utawa mung umbar-umbaran bae. Amarga, sanadyan wong iku ngunjara hawa napsune utawa ngereh hawa napsune supaya becik lan mituhu marang karsaning jiwane, yaiku supaya manut marang pituduh kang bener, nanging yen wong mau isih ngumbar mangane, turune, lan sahwate, iku iya isih durung bisa kelakon anggone sumedya nglindhihake napsune kang tumuju marang piala. Mung bae anggone ngurang-ngurangi kaangkaha saperlu, lan aja nganti diprusa kang ndadekake karusakaning raga, nanging dikulinakna cecegah (ngurang-ngurangi) saka sathithik manut kekuwatane, janji mintir (ajeg) ing saben dinane, suwe-suwe iya bisa mundhak-mundhak, nganti dadi padatan utawa pakulinan, kang ora agawe karusakaning raga, sanadyan bebasane nganti ora mangan ora turu, wus ora bakal ndadekake tiwase utawa ngrubeda kasarasane. Amarga badan saras iku perlu direksa (dipiara) supaya bisa nindakake kuwajiban lair batin.
@@ -1586,7 +1587,7 @@ Injil Lucas Bab 17 ayat 6:
 'Pangandikane Gusti: Saupama kowe nduwea pangandel sawiji sawi, mbok kowe nylathonana marang wit anjir alas iki: Rungkada, tumanceba ing segara, mesthi ngestokake marang kowe.'
 Kanthi dhedhasar kapitadosan dhateng Tripurusa, ingkang kula bunderaken ing telenging batos lan raos kula, kula yakin, manah kula badhe kiyat, saha boten badhe goncang malih yen kapandukan gegetering donya ingkang mblerengi punika, Kangmas."
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Dhimas Prabawa, anggonku ngempet guyu, nganti atos wetengku, ngrungokake keteranganmu bab tegese: 'thuk-mis, gus-reng-nis, lan be-el-te-we'. Lagi iki aku krungu ana 'kamus prenesan'. Ayake 'kamus' mau weton 'Pangecapan Idhung Belang'.
 Dhimas, bener kang dadi panemumu, luwih becik ngguyu, tinimbang mecucu-nesu, nanging iya aja kakehan guyu, mundhak metu saka dalan rahayu.
 Dhimas, kowe iku sawijining siswa kang sugih pangalaman lan mumpuni kabeh kawruh (ilmu), agal alus, lan blater. Nistha-papa-utama wis kokalami kabeh. Ing saiki dadi siswa kang mursid lan jatmika, tandang-tanduk prasaja lan susila-anoraga.
@@ -1658,7 +1659,7 @@ Sadherek Prabawa:
 
 Wasita-di kasebat nginggil, tumrap kula, kejawi saged nggigah raos kepengin wangsul dhateng Sangkan Paraning Gesang, ugi kenging kangge nglipur manah, samangsa kula nuju kasempyok 'gelombanging donya' ingkang damel goncang saha petenging manah kula. Manawi kula lajeng rengeng-rengeng ngidungaken sekar Kinanthi 'Pambuka Pati' wau, pepeteng ingkang nglimputi manah kula kados sinapu dening Sang Pepadhang. Amargi kula lajeng enget bilih kawontenan donya punika ewah gingsir, boten langgeng, saha enget bilih manungsa punika kapurbawasesa dening hukum angger-angger langgeng."
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Dhimas Prabawa, sajrone aku ngrungokake anggonmu ngidung Kinanthi 'Pambuka Pati' kanthi lagu kang mranani ati, suwara kang empuk-kepenak bebasan turut usuk, 'merdu merayu-rayu' pindha gendhing kang ngrangin ngumandhang ing angkasa tiniyub ing samirana-mrik, pangrasaku kaya dumunung ing 'alam luyut', badan wadhagku kaya-kaya kumambang ora sumeieh ing lemah. Sabanjure rasa-pangrasaku ora siwah kaya pangrasane Dhimas, kaya-kaya uwal saka bebandaning donya kang cidra iki, bareng aku ngrasakake surasane Kinanthi 'Pambuka Pati', yaiku panitining Pakdhe Narto bab rasaning urip telung prakara. Uga banjur gumaregah nambahi derenging sedya anggonku kepengin bali marang Sangkan Paraning Urip, kanthi ngesthi tuntunane Sang Guru Sejati.
 Dhimas Prabawa, aku nglairake rasa bungah lan banget ing suka panarimaku, dene Dhimas kanthi rena lan eklasing penggalih ngidung kang surasane gawe sengsem mareming atiku lan bisa nambahi derenging pangudi tumrap gegayuhaning urip kang sejati.
 Kejaba kadi iku, aku melu krasa bahagia lan banjur ngunjukake suka sukur ing ngayunaning Pangeran, uga ing padaning Sang Guru Sejati, dene Dhimas ing saiki wis salin 'busana anyar', wis lumaku ing dalan kang anjog ing sejatining kamukten, uga wis meruhi patitising pati, pati kang ateges bali marang Sejatining Urip. Yaiku wis ngambah dalan bener, iya dalan kautaman kang anjog ing karahayon, katentreman, lan kamulyan langgeng, kanthi tuntunane Sang Guru Sejati."
@@ -1763,51 +1764,51 @@ Putra-putraku sakabehe, kaya wis cukup anggonku nuwani utawa ngesuhi 'Bawa Rasa 
 
 Bawa Kusumastuti
 
-Dhuh, siswaning Sang Guru Sejati satuhu,
-Den bekti mring Hyang Suksma,
-Mituhu sayekti
-Netepi Dasa Sila,
-Sesanggeman suci,
-Dhedhasar Panca Sila,
+Dhuh, siswaning Sang Guru Sejati satuhu,\
+Den bekti mring Hyang Suksma,\
+Mituhu sayekti\
+Netepi Dasa Sila,\
+Sesanggeman suci,\
+Dhedhasar Panca Sila,\
 Ngesthi sihing Gusti.
 
 Dhawah Mijil Sulastri
 
-1. Tumuruning Sang Sasangka Jati, Nugrahaning Manon, 
-Hidayating Pangeran yektine, 
-Kang ingemban Sang Suksma Sejati, 
-Panuntun sayekti, 
+1. Tumuruning Sang Sasangka Jati, Nugrahaning Manon, \
+Hidayating Pangeran yektine, \
+Kang ingemban Sang Suksma Sejati, \
+Panuntun sayekti, \
 Utusan Hyang Agung.
 
-2. Kang winahya lumantar tutuking,
-Siswa-Nya kinaot,
-Dyan Soenarto nenggih peparabe,
-Kang piniji dadya warananing,
-Sang Guru Sejati,
-Tetesing sabda-yu.
+2. Kang winahya lumantar tutuking,\
+Siswa-Nya kinaot,\
+Dyan Soenarto nenggih peparabe,\
+Kang piniji dadya warananing,\
+Sang Guru Sejati,\
+Tetesing sabda-yu.\
 
-3. Amemayu hayuning pra jalmi,
-Kang samya pitados,
-Raharjaning jagad saisine,
-Marma wajib samya den pepundhi,
-Para siswa sami,
+3. Amemayu hayuning pra jalmi,\
+Kang samya pitados,\
+Raharjaning jagad saisine,\
+Marma wajib samya den pepundhi,\
+Para siswa sami,\
 Lan umat sawegung.
 
-4. Kang marsudi kamulyaning urip,
-Lair miwah batos,
-Ameruhi sangkan lan parane,
-Mrih rahayu donya prapteng akir,
-Sampurnaning urip,
+4. Kang marsudi kamulyaning urip,\
+Lair miwah batos,\
+Ameruhi sangkan lan parane,\
+Mrih rahayu donya prapteng akir,\
+Sampurnaning urip,\
 Manunggal Hyang Agung
 
-5. Pepadhanging Sang Sasangka Jati,
-Simpenen ing raos,
-Rasakena den krasa rasane,
-Kang rumesep jroning rahsa jati,
-Ati kang sinuci,
+5. Pepadhanging Sang Sasangka Jati,\
+Simpenen ing raos,\
+Rasakena den krasa rasane,\
+Kang rumesep jroning rahsa jati,\
+Ati kang sinuci,\
 Dhamparing Hyang Agung.
 
-Sadherek Kemayan:
+**Sadherek Kemayan:**\
 "Dhuh, Bapak pepundhen kula, salebetipun kula mirengaken dhawuh paduka, minangka panutuping bawa raos ing padhepokan Dana Warih ingkang rinengga ing kidung 'Mijil Sulastri' mawi bawa Kusumastuti kagem ngluhuraken mijiling purnamasidi, inggih tumedhaking Sang Sasangka Jati, raosing manah kula boten saged kula gambaraken kanthi tetembungan, ing raos kebekan sengsem ingkang nuwuhaken ayem-tentrem, katarambas aruming sabda ingkang isi dhawuh supados kita para siswa memundhi saha ngestokaken dhawuh wejanganipun Sang Guru Sejati, ingkang nuntun dhateng kamulyaning gesang lair batin.
 
 Dhuh, Bapak, inggih amung paduka bapa-guru pepundhen kula, ingkang wajib kula luhuraken tuwin kula bekteni. Kula prasetya badhe ngestokaken dhawuh paduka, mituhu dhawuhing Sang Guru Sejati ingkang cinandhi ing pustaka suci Sasangka Jati. Kula nyuwun berkah-pangestunipun Bapak mugi kula saged netepi prasetyaning manah, lumampah ing margi leres, inggih margi utami ingkang anjog ing karahayon, katentreman, tuwin kamulyan langgeng.
