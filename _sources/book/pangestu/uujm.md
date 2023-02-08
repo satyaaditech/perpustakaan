@@ -20,61 +20,124 @@
 
 <br/>
 <br/>
-**ular-ular 3 - 11**
+Raden Tumenggung Hardjoprakoso
+
+tuwin
+
+Raden Trihardono Soemodihardjo
+
+Cap-capan kaping kalih
+( 1976)
+
+Kawedalaken dening:
+PROYEK· PENERBITAN & PERPUSTAKAAN
+"PANGESTU"
+(PAGUYUBAN NGESTI TUNGGAL )
+PUSAT JAKARTA
+
+TIDAK DIJUAL
+UNTUK UMUM
+
+**PURWAKA**
+cap-capan ingkang kaping kalih.
+
+Nuwun, mugi andadosna kawuningan, bilih wedalipun buku cap-capan ingkang kaping kalih punika ejaanipun sampun dipun jumbuhaken manut pranatan enggal, kejawi ejaan asma-asma ingkang taksih tetep mawi ejaan lami, inggih punika :
+
+oe kedah kawaos u
+dj  "       "   j
+y   "       "   y
+
+Sarehning ular-ular saking juru-mengeti punika pancen sampun dados kanthinipun buku suci Sasangka lati, mila tumrap para siswanipun. Sang Guru Sejati (Suksma Sejati) tuwin para marsudi Kasunyatan Jati prayogi sanget maos buku punika, murih nambahi dhamangipun panyuraos piwulangipun Sang Guru Sejati.
+
+Buku Ular-ular cap-capan kaping kalih punika wonten bentenipun sawatawis kaliyan cap-eapan kapisan, inggih punika katambahan centhangan-centhangan (noot-noot) saking juru-mengeti ingkang kasebat ing Buku Sasangka Jati, ingkang wiwit cap-capan kaping sanga ugi boten dipun pacak malih wonten ing Buku Sasangka Jati.
+
+Wasana sumangga.
+
+
+Jakarta, Mei 1976.
+PROYEK PENERBITAN & PERPUSTAKAAN
+PANGESTU PUSAT
+Ketua,
+
+
+SOEHARNO
+
+
+**PURWAKA.**
+
+Cap-capan ingkang kapisan.
+
+Nuwun, ular-ularipun Juru Mengeti punika wiwit cithakan angka II sampun boten kagamblokaken malih wonten ing buku Sasangka Jati, awit saking karsanipun Paranpara kita Bapak Raden Soenarto Mertowardojo, supados pustaka suci Sasangka Jati namung mligi ngewrat sabda-sabdanipun Sang Guru Sejati.
+
+Lahiripun buku punika inggih namung netepi punapa ingkang kapacak ing purwakanipun serat Sasangka Jati cithakan angka II, inggih punika bilih ular-ularipun Juru Mengeti badhe kawedalaken piyambak .
+
+Mugi-mugi isinipun buku punika sageda ngrancagaken lampahipun para Siswanipun Sang Guru Sejati ing margining kasiswan.
+
+Satuhu'
+
+
+Surakarta, 14 Pebruari 1971.
+PAGUYUBAN NGESTI TUNGGAL
+
+
 ## I. BAB DUMADINING BAWANA
 
-Sasampunipun Sang Guru Sejati paring sabda bab dumadosing Bawana, kados ingkang kapacak ing buku Gumelaring Dumadi perangan I, pangembatipun para ingkang mengeti kados ing ngandhap punika.
+Sasampunipun Sang Guru Sejati paring sabda bab dumadosing Bawana,kados ingkang kapacak ing buku Gumelaring Dumadi perangan I, pangembatipun para jngkang mengeti kados ing ngandhap punika.
 
-Ingkang sampun kawursita ing nginggil wau sadaya, inggih punika bab dumadosipun anasir sekawan prakawis, ingkang lajeng mahanani dumadosipun jagad ageng punika, angin, srengenge, lintang tuwin rembulan, saking panggagas kula piyambak (juru mengeti) inggih lajeng kodheng, amargi angen-angen utawi kanalaran kula, boten saged andungkap kula angge anggarayangi kaelokaning Pangeran. Sanadyan kula mireng piyambak dhawuh pangandikanipun Sang Guru Sejati ingkang lumantar tutuking Siswanipun, ewa dene ingatasing awewaton kanalaran, tumrap kula ing wekdal punika boten saged anetepaken punapa inggih kados makaten punika kawontenanipun. Nanging kula pitados bilih sadaya dhawuh pangandikanipun Sang Guru Sejati punika mesthi leresipun. Amargi sadaya wau dumadosipun amung saking pangwasanipun Pangeran, ingkang nalar boten saged andungkap, kajawi bilih sampun pinarengaken ing Pangeran, saged ngampil pangwasanipun, kangge nyumerepi kasunyatanipun.
+lngkang sampun kawursita ing nginggil wau sadaya, inggih punika bab dumadosipun anasir sekawan prakawis, ingkang lajeng mahanani dumadosipun jagad ageng punika,angin,srengenge,lintang tuwin rembulan, saking panggagas kula piyambak (juru mengeti) inggih lajeng kodheng, amargi angen-angen utawi kanalaran kula,boten saged andungkap kula angge anggarayangi kaelokaning Pangeran . Sanadyan kula mireng piyambak dhawuh pangandikanipun Sang Guru Sejati ingkang lumantar tutuking Siswanipun, ewa dene ingatasing awewaton kanalaran,tumrap kula ing wekdal puniku boten saged anetepaken punapa inggih kados makaten punika kawontenanipun. Nanging kula pitados bilih sadaya dhawuh pangandikanipun Sang Guru Sejati punika mesthi leresipun. Amargi sadaya wau dumadosipun amung saking pangwasanipun Pangeran, ingkang nalar boten saged andungkap, kajawi bilih sampun pinarengaken ing Pangeran, saged ngampil pangwasanipun, kangge nyumerepi kasunyatanipun.
 
-Rehning anggenipun paring dhawuh bab dumadosipun bawana punika namung dumunung rerancagan, perlu kangge ancer-ancer, mila anggen kula nyerat ing buku punika, inggih amung kula lugokaken kemawon, punapa kawontenaning dhawuh pangandika. Amargi upami dipun terangaken mawi kanalaran kawruh lahir, yektosipun ing wekdal samangke inggih lajeng nama kinten-kinten, boten angeplegi kados nyatanipun. Dene ing tembe wingking bilih sampun dumugi ing mangsa kalanipun, bab punika dipun paringaken dados kawruh kalahiran gagrag anyar (Wetenschap), saking dhawuh pangandikanipun Sang Guru Sejati, inggih badhe dipun paringi katrangan mawi wewatoning kanalaran sacekapipun, lumantar siswa ingkang piniji tuwin gadhah dhasar dhateng kawruh bab punika. Boten beda kados kawontenaning lelampahanipun tuan Edison ing nagari Amerika, kautus amiwiti damel dilah listrik mawi wewatoning kawruh kanalaran sarta kanyataanipun.
+Rehning anggenipun paring dhawuh bab dumadosipun bawana punika namung dumunung rerancagan, perlu kangge ancer-ancer, mila anggen kula nyerat ing buku punika, inggih amung kula lugokaken kemawon, punapa kawontenaning dhawuh pangandika. Amargi upami dipun terangaken mawi kanalaran kawruh lahir, yektosipun ing wekdal samangke inggih lajeng nama kinten-kinten, boten angeplegi kados nyatanipun . Dene ing tembe wingking bilih sampun dumugi ing mangsa kalanipun, bab punika dipun paringaken dados kawruh kalahiran gagrag anyar (Wetenschap), saking dhawuh pangandikanipun Sang Guru Sejati, inggih badhe dipun paringi katrangan mawi wewatoning kanalaran sacekapipun, lumantar siswa ingkang piniji tuwin gadhah dhasar dhateng kawruh bab punika. Boten beda kados kawontenaning lelampahanipun tuan Edison ing nagari Amerika,kautus amiwiti damel dilah listrik mawi wewatoning kawruh kanalaran sarta kanyataanipun.
 
-Dene buku punika ingkang dipun perlokaken, badhe nerangaken bab dumadosipun manungsa, kewan, wit-witan sarta bangsaning lelembat (jim, setan, sapiturutipun). Wontenipun mawi nyariyosaken bab dumadining bawana, lakar inggih ugi wonten perlunipun. Kadosta dumadining anasir sekawan warni, ingkang sambet kaliyan adeging badanipun manungsa tuwin titah gesang sanesipun. Makaten ugi kawruh kasuksman, sampurnanipun inggih prayogi sumerep dhateng sangkan paraning sadaya titah gesang dalah ingkang gumelar ing Bawana punika.
+Dene buku punika ingkang dipun perlokaken, badhe nerangaken bab dumadosipun manungsa,kewan,wit-witan sarta bangsaning lelembat (jim,setan, sapiturutipun). Wontenipun mawi nyariyosaken bab dumadining bawana, lakar inggih ugi wonten perlunipun. Kadosta dumadining anasir sekawan warni, ingkang sambet kaliyan adeging badanipun manungsa tuwin titah gesang sanesipun. Makaten ugi kawruh kasuksman, sampurnanipun inggih prayogi sumerep dhateng sangkan paraning sadaya titah gesang dalah ingkang gumelar ing Bawana punika.
 
+---000---
 
-## II. Ular-ularipun Juru mengeti bab TUNGGAL SABDA
+## II. Ular-ularipun Juru mengeti bab
+## TUNGGAL SABDA
 
 Punapa tegesipun sabda?
 
-Sabda makaten inggih kenging dipun werdeni: uni, swara, ujar, basa utawi tembung. Sanadyan sadaya wau inggih dhapur uni, swara, ujar tuwin basa, nanging menggah ing kanyataanipun, ingkang dipun kajengaken sabda ing ngriki punika ingkang anggadhahi teges: pangandika ingkang ngemu wulang wuruk (catur-pitutur), prentah, cegah t.s.p. Saminipun tembung Yunani "logos", tembung Arab "logat" sami anggadhahi teges "basa", nanging inggih basa ingkang mengku pitedah, pitutur t.s.p. wau.
+Sabda makaten inggih kenging dipun werdeni : uni, swara, ujar, basa utawi tembung. Sanadyan sadaya wau inggih dhapur uni, swara, ujar tuwin basa, nanging menggah ing kanyataanipun, ingkang dipun kajengaken sabda ing ngriki punika ingkang anggadhahi teges: pangandika ingkang ngemu wulang wuruk (catur-pitutur), prentah, cegah t.s.p. Saminipun tembung Yunani "logos", tembung Arab "logat" sami anggadhahi teges "basa", nanging inggih basa ingkang mengku pitedah, pitutur l.s.p. wau.
 
-Logos, logat, utawi basa-pamicara punapa pangandika ingkang mengku pitedah kasebut wau, titah manungsa boten gampil anggenipun badhe nyampurnakaken. Kanthi basa pamicara punika nedahaken bilih titah manungsa kinacek saha linuhuraken katimbang titah gesang bangsaning sato. Inggih leres ingkang ambedakaken punika yektosipun jalaran manungsa kadunungan akal-pikiran (logos) saha budi-kanalaranipun, nanging saking basa pamicaranipun manungsa, saweg saged katitik, kaukur tuwin katandhing-tandhing sapinten lebet-cetheking akal-pikiran saha budi-kanalaranipun wau.
+Logos, logat, utawi basa-pamicara punapa pangandika ingkang mengku pitedah kasebut wau, titah manungsa boten gampil anggenipun badhe nyampurnakaken. Kanthi basa pamioara punika nedahaken bilih titah manungsa kinacek saha linuhuraken katimbang titah gesang bangsaning sato. Inggih leres ingkang ambedakaken punika yektosipun jalaran manungsa kadunungan akal-pikiran (logos) saha budi-kanalaranipun, nanging saking basa pamicaranipun manungsa, saweg saged katitik, kaukur tuwin katandhingtandhing sapinten lebet-cetheking akal-pikiran saha budi-kanalaranipun wau.
 
-Punapa sampun cekap kaliyan pangertosaning akal pikiran kemawon ?
-
-Kangge badanipun piyambak saged ugi sampun cekap, nanging tumrap bebrayaning gesang sesarengan, kados kemawon inggih dereng cekap. Manawi pangerti kita namung tumrap dhiri pribadi kemawon, inggih dereng wonten pigunanipun utawi manpangatipun, sami ugi tumrap dhiri pribadi utawi masyarakat.
+Punapa sampun cekap kaliyan pangertosaning akal pikiran kemawon '? Kangge badanipun piyambak saged ugi sampun cekap, nanging tumrap bebrayaning gesang sesarengan, kados kemawon inggih dereng cekap. Manawi pangerti kita namung tumrap dhiri pribadi kemawon, inggih dereng wonten pigunanipun utawi manpangatipun , sami ugi tumrap dhiri pribadi utawi masyarakat.
 
 Kanthi wawan-sabda (rerembagan) liru pamanggih (pangertosan), antawisipun satunggal kaliyan sanesipun, pangertining akal pikiran saha budi kanalaranipun wau saweg wonten manpangatipun saha piguna ngindhakaken kawruhipun.
 
 Dados: basa-pamicara utawi sabda-pangandika wau, sanadyan inggih awujud suwara, uni tuwin ujar, nanging inggih suwara utawi uni ingkang nedahaken saweneh barang dhateng tiyang sanes, manut putusaning akal pikiran ingkang sampun rinacik dening budi kanalaranipun.
 
-Basa-pamicara utawi sabda-pangandika punika saya langkung wigatos malih tumrapipun manungsa, manawi tiyang nedya ngupaya pitedah leres, ingkang nuntun dhateng karaharjaning gesangipun. Mila basa-pamicara wau dados sarat mutlak ingatasing bab punika. Selak mokal pangertosan bab agami utawi piwulang-piwulangipun para andika Nabi Rasul, saged rumangsuk manahipun tiyang, manawi boten ngangge lantaran basa-pamicara utawi sabda pangandika, ingkang mengku pinten-pinten pitedah leres, wulang wuruk, prentah, cegah tuwin sapanunggilanipun wau. Pitedah agami makaten dados pepucuk pambukaning nalar pikiran, kasagedan, tata-susila tuwin kabudayanipun manungsa. Ingkang saged nginggahaken drajad kewani dhateng drajad kamanungsan, ingkang ing nglebetipun isi kamajengan, punika boten namung winates ing salebeting gesangipun saben-saben tiyang kemawon, nanging basa-pamicara ingkang ngemu pitedah leres kasebut, inggih suka tetilaran (warisan) sambet-sumambet dhateng tedhak-turunipun, ingkang saya dangu saya mindhak-mindhak kasampurnanipun, wiwit wonten titah manungsa ngantos dumugi kiyamating jagad ageng punika.
+Basa-pamicara utawi sabda-pangandika punika saya langkung wigatos malih tumrapipun manungsa, manawi tiyang nedya ngupaya pitedah leres, ingkang nuntun dhateng karaharjaning gesangipun. Mila basa-pamicara wau dados sarat mutlak ing atasing bab punika. Selak mokal pangertosan bab agami utawi piwulang-piwulangipun para andika Nabi Rasul, saged rumangsuk manahipun tiyang, manawi boten ngangge lantaran basa-pamicara utawi sabda pangandika, ingkang mengku pinten-pinten pitedah leres, wulangwuruk, prentah, cegah tuwin sapanunggilanipun wau. Pitedah agami makaten dados pepucuk pambukaning nalar pikiran, kasagedan, tata-susila tuwin kabudayanipun manungsa. Ingkang saged nginggahakcn drajad kewani dhateng drajad kamanungsan, ingkang ing nglebetipun isi kamajengan, punika boten namung winates ing salebeting gesangipun saben-saben tiyaug kemawon, nanging basa-pamicara ingkang ngemu pitedah leres kasebut, inggih suka tetilaran (warisan) sambet-sumambet dhateng tedhak-turuniipun, ingkang saya dangu saya mindhak-mindhak kasampurnanipun, wiwit wonten titah manungsa ngantos dumugi kiyamating jagad ageng punika.
 
 Kados ingkang sampun kula aturaken ing ngajeng, logos makaten tembung Yunani asaling makna sami kaliyan tembung Arab "logat", inggih punika "sabda" utawi pangandika menggahing suraosipun. Nanging gegayutan kaliyan kawigatosan kasebut nginggil, suraosipun lajeng saya jembar malih tebanipun, ngantos langkung saking sakridhaning pakartinipun akal-pikiran, tebih sungsatipun kaliyan asaling makna sakawit.
 
-Kawuningana, kajawi makna basa catur-pitutur (pangandika), tembung logos ingkang ugi anggadhahi teges: pangerti, nalar saha pikir, ugi taksih saya langkung lebet malih suraosipun, inggih punika dipun tegesi : Sabda Pangandikaning Pangeran (Kalamullah), ingkang andumadosaken jagad-rat pramudita saisen-isenipun sadaya, kanthi angger-angger ingkang adil , miwah tata-tertib saha kaliyan kawicaksanan ingkang sakalangkung sampurna.
+Kawuningana, kajawi makna basa catur-pitutur (pangandika), tembung logos ingkang ugi anggadhahi teges: pangerti, nalar saha pikir, ugi taksih saya langkung lebet malih suraosipun, inggih punika dipun tegesi : Sabda Pangandikaning Pangeran (Kalamullah), ingkang andumadosaken jagad-rat pramudita saisen-isenipun sadaya, kanthi angger-angger ingkang adil, miwah tata-tertib saha kaliyan kawicaksanan ingkang sakalangkung sampurna.
 
-Tembung logos ingkang dipun tegesi Kalamullah (Sabda Pangadikaning Allah) kasebut, punika pinanggih wonten ing Kitab Suci Purwaning dumadi (Genesis) ingkang wiwitan ing "Prajanjian Lami" (Oude Testament) - limrahipun winastan Taurat, nerangaken dumadosing alam-gumelar (jagad-rat pramudita) saha sadaya makhluk, kanthi kawicaksananing Logos, inggih Sabda Pangandikaning Allah ingkang Maha Kuwasa.
+Tembung logos ingkang dipun tegesi Kalamullah (Sabda Pangadikaning Allah) kasebut, punika pinanggih wonten ing Kitab Suci Purwaningdumadi (Genesis) ingkang wiwitan ing "Prajanjian Lami" (Oude Testament) - limrahipun winastan Taurat, nerangaken dumadosing alam-gumelar (jagad-rat pramudita) saha sadaya makhluk, kanthi kawicaksananing Logos, inggih Sabda Pangandikaning Allah ingkang Maha Kuwasa.
 
-Kasebut ing Kitab Suci Al Qur'an, Sabda Pangandikaning Allah punika boten namung winates tumrap wiwitan dumadosing alam-gumelar saisen-isenipun sadaya kemawon.
+Kasebut ing Kitab Suci Al Qur'an, Sabda Pangandikaning Allah punika boten namung winates tumrap wiwitan dumadosing alam-gumelar saisenisenipun sadaya kemawon.
 
 Ing Surat Yasin ayat 82 nerangaken: "Bilih pangwasaning Allah punika samangsa Panjenenganipun ngersakaken wontenipun saweneh barang, cekap nyabda "Kun" (sira dadia), lajeng wonten (dumados) sami sanalika (fayakun). Manawi boten wonten Karsa nyabdakaken punapa-punapa, inggih boten wonten dumados punapa-punapa (Ma-lam yasyak lam yakun).
 
-Ing Kitab Suci "Prajanjian Enggal", Injil Yahya bab I ayat 1 - 3 nerangaken :
+Ing Kitab Suci "Prajanjian Enggal", Injil Yahya bab I ayat ] - 3 nerangaken :
 
-1. Sakawit ana Sabda (Logos) lan Sabda iku ana ing Allah sarta Sang Sabda iku iya Allah.
+1. Sakawit ana Sabda (Logos) lan Sabda iku ana ing Allah sarta 'Sang Sabda iku iya Allah.
+
 2. Panjenengane (Sang Sabda) iku sakawit ana ing Allah.
+
 3. Samubarang apa bae iku iya Sang Sabda kang andumadekake, lan ora ana sawiji-wiji kang dumadi kang dudu saka Panjenengane kang andumadekake.
 
-Tumrap kapitadosan Kristen, umumipun sami nganggep bilih Kanjeng Nabi Isa (Yesus) punika inggih Sang Sabda ingkang angejawantah, mila lajeng sinebut Yesus Kristus, Putraning Allah. Panganggep ingkang makaten punika, kula boten badhe amancahi, namung menggahing Kasunyatanipun (Waarheid), ingkang sinebut Putraning Allah punika Sang Kristus, dados sanes pribadinipun utawi dhirinipun Kanjeng Nabi Yesus, nanging Kristus-ipun. Pamanggih makaten punika salaras kaliyan piwulang kabatosan Tasawuf Islam, bab kawontenanipun Nur-Muhammad, ingkang ugi sinebut Nur-Datullah, nanging sanes dhirinipun Kanjeng Nabi Muhammad, ingkang dados warangkaning Nur-Muhammad wau, sanadyan inggih satunggal kaliyan sugengipun Kanjeng Nabi Muhammad, ewa samanten kedah wonten pepilahipun antawising gesangipun kuwadhagan (jasmani) kaliyan rohaninipun.
+Tumrap kapitadosan Kristen, umumipun sami nganggep bilih Kanjeng Nabi Isa (Yesus) punika inggih Sang Sabda ingkang angejawantah, mila lajeng sinebut Yesus Kristus, Putranillg Allah. Panganggep ingkang makaten punika, kula boten badhe amancahi, namung menggahing Kasunyatanipun (Waarheid), ingkang sinebut Putraning Allah punika Sang Kristus, dados sanes pribadinipun utawi dhirinipun Kanjeng Nabi Yesus, nanging Kristus-ipun. Pamanggih makaten punika salaras kaliyan piwulang kabatosan Tasawuf Islam, bab kawontenanipun Nur-Muhammad, ingkang ugi sinebut Nur-Datullah, nanging sanes dhirinipun Kanjeng Nabi Muhammad, ingkang dados warangkaning Nur-Muhammad wau, sanadyan inggih satunggal kaliyan sugengipun Kanjeng Nabi Muhammad, ewa samanten kedah wonten pepilahipun antawising gesangipun kuwadhagan (jasmani) kaliyan rohaninipun.
 
 Pangandikanipun Kanjeng Nabi Muhammad: "Inni chuliqtu qabla kulla syaein wa Adamu Munjaddil fi thainatihi", suraosipun: Ingsun (inggih punika Nuripun Kanjeng Nabi Muhammad) tumitah sadurunge ana sawiji-wiji kang dumadi lan kahanane Adam isih dadi kahananing lebu. Tegesipun kuwadhaganing Adam taksih awujud sarining anasir sekawan prakawis (stof). Ringkesing suraos: gumelaripun Nur Muhammad (Nur Datullfah) punika mujudaken kababaring anasir lan gesang ingkang anggesangi (Geest en Stof), inggih kababaripun Sang Sabda ingkang andumadosaken gumelaring sadaya alam-alam dalah saisen-isenipun sadaya punika.
 
-Manawi tiyang saged milah-milahaken antawisipun wadhag lan rohaninipun utawi Suksma lan raganipun, pribadinipun Kanjeng Nabi Muhammad kaliyan Nur Muhammad-ipun, pribadinipun Kanjeng Nabi Isa (Yesus) kaliyan Kristus-ipun, Sri Kreshna kaliyan Wisnu-nipun, kados boten badhe sulaya kaliyan piwulang taukhid (bab nyawijekaken Allah ingkang Maha Tunggal). Ringkesipun : tanpa Nur Muhammad utawi tanpa Kristus - inggih sipat sihipun Allah ingkang cinandra kanthi sesebutan Putraning Allah --­ boten badhe wonten titah gesang, amargi Panjenenganipun punika sumberipun utawi sagantenipun Gesang, ingkang anggesangi sadaya wujud, langkung malih tumrap titah manungsa, Panjenenganipun (Kristus = Nur Muhammad) - inggih sejati-jatine kang nguripi (Suksma Sejati-nipun manungsa) - punika inggih ugi dados Panuntun saha Gurunipun manungsa ingkang sejati, saha ingkang sampun sumimpen wonten telenging gesang kita sadaya.
+Manawi tiyang saged milah-milahaken antawisipun wadhag lan rohaninipun utawi Suksma lan raganipun, pribadinipun Kanjeng Nabi Muhammad kaliyan Nur Muhammad-ipun, pribadinipun Kanjeng Nabi Isa (Yesus) kaliyan Kristus-ipun, Sri Kreshna kaliyan Wisnu-nipun, kados boten. badhe sulaya kaliyan piwulang taukhid (bab nyawijekaken Allah ingkang Maha Tunggal). Ringkesipun : tanpa Nur Muhammad utawi tanpa Kristus - inggih sipat sihipun Allah ingkang cinandra kanthi sesebutan Putraning Allah .--­ boten badhe wonten titah gesang, amargi Panjenenganipun punika sumberipun utawi sagantenipun Gesang, ingkang anggesangi sadaya wujud, langkung malih tumrap titah manungsa, Panjenenganipun (Kristus = Nur Muhammad) - inggih sejati-jatine kang nguripi (Suksma Sejati-niplin manungsa) - punika inggih ugi dados Panuntun saha Gurunipun manungsa ingkang sejati, saha ingkang sampun sumimpen wonten telenging gesang kita sadaya.
 
 Katrangan bab tegesing sabda, kados sampun cekap kula punggel samanten kemawon. Dados namining serat "Tunggal Sabda" punika, suraosipun inggih mormisah kemawon kaliyan katrangan tegesipun tembung Logos kasebut nginggil.
 
 Dene kados pundi anggenipun para marsudi badhe nglenggahaken suraosing serat Tunggal Sabda punika, namung kasumanggaken saha kapasrahaken dhateng keparengipun para marsudi Kasunyatan piyambak-piyambak.
+
+-----000---
 
 
 
